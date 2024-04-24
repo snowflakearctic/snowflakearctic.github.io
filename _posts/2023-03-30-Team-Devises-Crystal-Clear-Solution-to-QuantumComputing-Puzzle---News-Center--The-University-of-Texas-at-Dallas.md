@@ -1,0 +1,1 @@
+[Team Devises Crystal-Clear Solution to #QuantumComputing Puzzle - News Center   The University of Texas at Dallas](https://qi.tc/qi/112389)
