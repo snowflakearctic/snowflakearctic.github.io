@@ -1,2 +1,1 @@
-# Snowflake ARCTIC
-## Advanced Research Computing Technology and Innovation Centre
+# Snowflake ARCTIC (Advanced Research Computing Technology and Innovation Centre) 
