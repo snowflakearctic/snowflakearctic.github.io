@@ -1,0 +1,11 @@
+title: Snowflake Arctic
+subtitle: Repository of relevant Computer Science links from Academia 
+
+titles_from_headings:
+  enabled: true
+  strip_title: true
+
+remote_theme: jekyll/minima
+minima:
+  skin: solarized
+  date_format: "On day %-j of the year %Y which happened to be a %A in the month of %B"
