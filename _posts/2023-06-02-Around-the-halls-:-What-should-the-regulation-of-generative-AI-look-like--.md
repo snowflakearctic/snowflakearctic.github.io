@@ -1,0 +1,1 @@
+[Around the halls : What should the regulation of generative AI look like ?](https://qi.tc/qi/113768)
