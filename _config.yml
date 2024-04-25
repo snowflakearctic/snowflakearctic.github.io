@@ -8,7 +8,6 @@ titles_from_headings:
 remote_theme: jekyll/minima
 minima:
   skin: solarized
-  date_format: "On day %-j of the year %Y which happened to be a %A in the month of %B"
-
+  
 google_site_verification: fvYz1B8yNW7ty9JFQlUtitr1iLDZOkcJKmXBDw61DJM
 bing_site_verification: 6EC6EF9289FCA6EB99E61F2A3C5064FE
