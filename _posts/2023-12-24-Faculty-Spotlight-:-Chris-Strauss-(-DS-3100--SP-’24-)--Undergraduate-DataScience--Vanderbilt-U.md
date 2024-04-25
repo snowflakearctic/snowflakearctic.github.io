@@ -1,0 +1,1 @@
+[Faculty Spotlight : Chris Strauss ( DS 3100   SP ’24 )   Undergraduate #DataScience   @Vanderbilt U](https://qi.tc/qi/118755)
