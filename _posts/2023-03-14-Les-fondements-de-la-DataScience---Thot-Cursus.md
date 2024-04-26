@@ -1,0 +1,1 @@
+[Les fondements de la #DataScience - Thot Cursus](https://qi.tc/qi/112060)
