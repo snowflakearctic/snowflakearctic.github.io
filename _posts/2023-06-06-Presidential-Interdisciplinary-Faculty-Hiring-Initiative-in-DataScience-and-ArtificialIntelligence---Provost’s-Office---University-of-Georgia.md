@@ -1,0 +1,1 @@
+[Presidential Interdisciplinary Faculty Hiring Initiative in #DataScience and #ArtificialIntelligence - Provost’s Office - University of Georgia](https://qi.tc/qi/113867)
