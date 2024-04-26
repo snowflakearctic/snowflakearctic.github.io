@@ -1,0 +1,1 @@
+[Event to highlight honors education and #ArtificialIntelligence - 2023 - The Honors College - OU Magazine - News - @oaklandu](https://qi.tc/qi/112456)
