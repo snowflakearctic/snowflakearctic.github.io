@@ -1,0 +1,1 @@
+[A Blueprint for Using AI in Psychotherapy](https://qi.tc/qi/114184)
