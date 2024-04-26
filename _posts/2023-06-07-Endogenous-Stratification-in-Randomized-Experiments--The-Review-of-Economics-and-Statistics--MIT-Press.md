@@ -1,0 +1,1 @@
+[Endogenous Stratification in Randomized Experiments   The Review of Economics and #Statistics   @MIT Press](https://qi.tc/qi/113889)
