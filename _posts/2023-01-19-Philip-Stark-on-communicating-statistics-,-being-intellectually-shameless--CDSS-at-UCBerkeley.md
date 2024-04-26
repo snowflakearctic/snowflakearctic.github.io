@@ -1,0 +1,1 @@
+[Philip Stark on communicating statistics , being intellectually shameless   CDSS at @UCBerkeley](https://qi.tc/qi/110834)
