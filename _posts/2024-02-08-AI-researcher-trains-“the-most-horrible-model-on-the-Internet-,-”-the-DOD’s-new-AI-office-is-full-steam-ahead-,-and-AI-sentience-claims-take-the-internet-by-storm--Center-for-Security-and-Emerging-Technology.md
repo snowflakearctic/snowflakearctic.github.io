@@ -1,0 +1,1 @@
+[AI researcher trains “the most horrible model on the Internet , ” the DOD’s new AI office is full steam ahead , and AI sentience claims take the internet by storm   Center for Security and Emerging Technology](https://qi.tc/qi/119130)
