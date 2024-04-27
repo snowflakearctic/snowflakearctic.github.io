@@ -1,0 +1,1 @@
+[Class Schedules & Book Lists   #ComputerScience and Engineering at Michigan](https://qi.tc/qi/118815)
