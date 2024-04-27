@@ -1,0 +1,1 @@
+[Class Blog – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/114825)
