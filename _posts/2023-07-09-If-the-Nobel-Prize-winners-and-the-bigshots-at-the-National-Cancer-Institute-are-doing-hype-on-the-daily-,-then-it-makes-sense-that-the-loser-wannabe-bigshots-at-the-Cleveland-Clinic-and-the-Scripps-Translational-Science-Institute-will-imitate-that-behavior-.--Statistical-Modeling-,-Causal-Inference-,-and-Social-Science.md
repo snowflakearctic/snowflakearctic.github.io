@@ -1,0 +1,1 @@
+[If the Nobel Prize winners and the bigshots at the National #Cancer Institute are doing hype on the daily , then it makes sense that the loser wannabe bigshots at the Cleveland Clinic and the Scripps Translational Science Institute will imitate that behavior .   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/114012)
