@@ -1,0 +1,1 @@
+[#Research Assistant/Associate in AI and Digital Manufacturing ( Fixed Term ) - Job Opportunities - @cambridge_uni](https://qi.tc/qi/113818)
