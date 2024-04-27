@@ -1,0 +1,1 @@
+[Howard University’s Inaugural #DataScience for Social Justice Week   The Dig at Howard University](https://qi.tc/qi/111562)
