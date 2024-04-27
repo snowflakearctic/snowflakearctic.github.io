@@ -1,0 +1,1 @@
+[#ArtificialIntelligence shows why it is imperative to have more women in international negotiations   LSE Business Review](https://qi.tc/qi/110667)
