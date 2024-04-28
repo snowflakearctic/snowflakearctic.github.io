@@ -1,0 +1,1 @@
+[( PDF) Large-scale scene image categorisation with deep learning-based model   Abhishek Verma - Academia .edu](https://qi.tc/qi/119978)
