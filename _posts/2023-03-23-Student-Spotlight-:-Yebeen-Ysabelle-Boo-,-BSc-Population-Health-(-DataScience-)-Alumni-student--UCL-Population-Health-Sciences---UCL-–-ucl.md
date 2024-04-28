@@ -1,0 +1,1 @@
+[Student Spotlight : Yebeen Ysabelle Boo , BSc Population Health ( #DataScience ) Alumni student   @UCL Population Health Sciences - @UCL – @ucl](https://qi.tc/qi/112227)
