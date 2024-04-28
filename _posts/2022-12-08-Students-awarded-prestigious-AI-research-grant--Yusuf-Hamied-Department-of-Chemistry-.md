@@ -1,0 +1,1 @@
+[Students awarded prestigious AI research grant   Yusuf Hamied Department of Chemistry ](https://qi.tc/qi/110107)
