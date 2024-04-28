@@ -1,0 +1,1 @@
+[Degree Programs in Analytics and #DataScience – Master of Science in Analytics   Institute for Advanced Analytics](https://qi.tc/qi/119998)
