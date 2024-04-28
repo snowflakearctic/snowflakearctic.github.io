@@ -1,0 +1,1 @@
+[TAL – Closing the education resource gap with the support of #MachineLearning in China - Technology and Operations Management](https://qi.tc/qi/116910)
