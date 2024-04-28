@@ -1,0 +1,1 @@
+[My two courses this fall : “Applied #Regression and Causal Inference ” and “Communicating Data and #Statistics ”   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/117296)
