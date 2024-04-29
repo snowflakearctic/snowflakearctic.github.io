@@ -1,0 +1,1 @@
+[Workshop : Early Career Researchers in #Statistical Mechanics and Thermodynamics - Higgs Centre for Theoretical Physics](https://qi.tc/qi/112982)
