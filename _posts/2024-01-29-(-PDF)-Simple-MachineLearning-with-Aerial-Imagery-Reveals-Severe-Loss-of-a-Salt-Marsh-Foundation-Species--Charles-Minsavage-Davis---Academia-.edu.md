@@ -1,0 +1,1 @@
+[( PDF) Simple #MachineLearning with Aerial Imagery Reveals Severe Loss of a Salt Marsh Foundation Species   Charles Minsavage-Davis - Academia .edu](https://qi.tc/qi/119079)
