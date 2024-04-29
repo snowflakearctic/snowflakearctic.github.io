@@ -1,0 +1,1 @@
+[Opportunities and blind spots in the White House’s blueprint for an AI Bill of Rights](https://qi.tc/qi/110326)
