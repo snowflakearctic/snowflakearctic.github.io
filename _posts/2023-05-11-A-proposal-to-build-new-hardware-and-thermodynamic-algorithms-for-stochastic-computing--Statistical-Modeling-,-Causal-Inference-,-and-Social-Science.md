@@ -1,0 +1,1 @@
+[A proposal to build new hardware and thermodynamic algorithms for stochastic computing   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/113320)
