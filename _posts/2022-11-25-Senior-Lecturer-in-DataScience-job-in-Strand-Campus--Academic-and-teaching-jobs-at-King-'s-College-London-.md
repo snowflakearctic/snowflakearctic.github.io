@@ -1,0 +1,1 @@
+[Senior #Lecturer in #DataScience job in Strand Campus   Academic and teaching jobs at King 's College London ](https://qi.tc/qi/54437)
