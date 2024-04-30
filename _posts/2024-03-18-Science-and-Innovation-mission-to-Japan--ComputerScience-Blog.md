@@ -1,0 +1,1 @@
+[Science and Innovation mission to Japan   #ComputerScience Blog](https://qi.tc/qi/119546)
