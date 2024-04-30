@@ -1,0 +1,1 @@
+[Integrating AI with IoT for an Effective Supply Chain - SIPMM Publications](https://qi.tc/qi/113705)
