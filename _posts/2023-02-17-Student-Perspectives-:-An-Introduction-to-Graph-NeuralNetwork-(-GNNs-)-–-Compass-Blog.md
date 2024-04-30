@@ -1,0 +1,1 @@
+[Student Perspectives : An Introduction to Graph #NeuralNetwork ( GNNs ) – Compass Blog](https://qi.tc/qi/111456)
