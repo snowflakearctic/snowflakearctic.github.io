@@ -1,0 +1,1 @@
+[Mehran Sahami to discuss #ArtificialIntelligence ethics at distinguished lecture - PSU Institute for Computational and Data Sciences   High Performance Computing at @penn_state](https://qi.tc/qi/112831)
