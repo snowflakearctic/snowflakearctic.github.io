@@ -1,0 +1,1 @@
+[Monitoring of landslide hazards with wireless sensor networks and #MachineLearning , Geography and #ComputerScience - PhD ( Funded ) at @uniofexeter](https://qi.tc/qi/110660)
