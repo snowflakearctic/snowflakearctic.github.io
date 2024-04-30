@@ -1,0 +1,1 @@
+[Professor Huser receives the Abdel El-Shaarawi Early Investigator Award 2022   CEMSE   Computer , Electrical and Mathematical Sciences and Engineering ](https://qi.tc/qi/10201)
