@@ -1,0 +1,1 @@
+[Lancaster pupils use the power of AI to reimagine school   @lancasteruni](https://qi.tc/qi/113214)
