@@ -1,0 +1,1 @@
+[#QuantumComputing and other transformative technologies in SearchWorks catalog](https://qi.tc/qi/113626)
