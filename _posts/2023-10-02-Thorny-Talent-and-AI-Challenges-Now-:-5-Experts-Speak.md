@@ -1,0 +1,1 @@
+[Thorny Talent and AI Challenges Now : 5 Experts Speak](https://qi.tc/qi/117792)
