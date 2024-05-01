@@ -1,0 +1,1 @@
+[Congratulation to Aditya Dutt for publishing his new paper : Contrastive learning based MultiModal Alignment Network – Alina Zare – #MachineLearning and Sensing Lab ](https://qi.tc/qi/110172)
