@@ -1,0 +1,1 @@
+[ML+X Forum : Applied #MachineLearning   @UWMadison Events Calendar](https://qi.tc/qi/117966)
