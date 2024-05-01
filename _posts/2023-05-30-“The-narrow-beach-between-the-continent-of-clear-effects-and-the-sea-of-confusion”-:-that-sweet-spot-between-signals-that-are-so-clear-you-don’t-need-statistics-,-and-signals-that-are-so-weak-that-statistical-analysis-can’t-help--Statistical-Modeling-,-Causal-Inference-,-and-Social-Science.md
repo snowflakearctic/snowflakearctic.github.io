@@ -1,0 +1,1 @@
+[“The narrow beach between the continent of clear effects and the sea of confusion” : that sweet spot between signals that are so clear you don’t need statistics , and signals that are so weak that statistical analysis can’t help   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/113704)
