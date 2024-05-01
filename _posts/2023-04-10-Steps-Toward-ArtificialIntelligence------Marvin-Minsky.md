@@ -1,0 +1,1 @@
+[Steps Toward #ArtificialIntelligence - - -Marvin Minsky](https://qi.tc/qi/112598)
