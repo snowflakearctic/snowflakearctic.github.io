@@ -1,0 +1,1 @@
+[#MachineLearning : CICERO – AI Program Learns the Art of Diplomacy !   Tony 's Thoughts ](https://qi.tc/qi/53437)
