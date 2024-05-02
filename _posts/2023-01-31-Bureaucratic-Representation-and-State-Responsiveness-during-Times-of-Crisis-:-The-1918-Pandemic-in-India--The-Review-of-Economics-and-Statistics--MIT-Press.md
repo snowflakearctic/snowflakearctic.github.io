@@ -1,0 +1,1 @@
+[Bureaucratic Representation and State Responsiveness during Times of Crisis : The 1918 Pandemic in India   The Review of Economics and #Statistics   @MIT Press](https://qi.tc/qi/111059)
