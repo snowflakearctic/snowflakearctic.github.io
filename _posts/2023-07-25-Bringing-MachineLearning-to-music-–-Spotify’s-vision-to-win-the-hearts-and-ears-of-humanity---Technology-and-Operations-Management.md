@@ -1,0 +1,1 @@
+[Bringing #MachineLearning to music – Spotify’s vision to win the hearts and ears of humanity - Technology and Operations Management](https://qi.tc/qi/115274)
