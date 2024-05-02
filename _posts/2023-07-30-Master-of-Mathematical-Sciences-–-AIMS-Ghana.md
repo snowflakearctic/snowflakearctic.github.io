@@ -1,0 +1,1 @@
+[Master of Mathematical Sciences – AIMS Ghana](https://qi.tc/qi/115698)
