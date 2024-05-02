@@ -1,0 +1,1 @@
+[Exploring the Cutting-Edge of AI in Earth Surface #Research : A Glimpse into a High-Impact Panel Discussion   Earthlab](https://qi.tc/qi/113539)
