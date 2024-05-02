@@ -1,0 +1,1 @@
+[#ArtificialIntelligence on our Doorstep : How Machines Analyze CEO Psychology   Cal State LA](https://qi.tc/qi/110774)
