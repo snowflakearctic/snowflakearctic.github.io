@@ -1,0 +1,1 @@
+[Integrating humans with AI in structural design   @MIT News   @MIT](https://qi.tc/qi/111777)
