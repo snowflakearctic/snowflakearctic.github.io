@@ -1,0 +1,1 @@
+[" THE BOTCHED AIR SUPPORT OF OPERATION COBRA" by John J. Sullivan](https://qi.tc/qi/116391)
