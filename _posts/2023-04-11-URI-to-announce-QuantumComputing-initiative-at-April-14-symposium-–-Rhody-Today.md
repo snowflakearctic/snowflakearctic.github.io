@@ -1,0 +1,1 @@
+[URI to announce #QuantumComputing initiative at April 14 symposium – Rhody Today](https://qi.tc/qi/112625)
