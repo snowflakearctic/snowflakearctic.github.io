@@ -1,0 +1,1 @@
+[Student #Geospatial Data Map Design Competition 2022   #DataScience Institute ](https://qi.tc/qi/9087)
