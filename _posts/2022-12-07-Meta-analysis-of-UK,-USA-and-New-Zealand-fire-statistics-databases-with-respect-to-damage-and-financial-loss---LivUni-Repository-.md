@@ -1,0 +1,1 @@
+[Meta-analysis of UK, USA and New Zealand fire statistics databases with respect to damage and financial loss - @LivUni Repository ](https://qi.tc/qi/110071)
