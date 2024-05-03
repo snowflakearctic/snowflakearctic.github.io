@@ -1,0 +1,1 @@
+["pyShore : A #DeepLearning toolkit for shoreline structure mapping with " by Zhonghui Lv , Karinna Nunez et al .](https://qi.tc/qi/111315)
