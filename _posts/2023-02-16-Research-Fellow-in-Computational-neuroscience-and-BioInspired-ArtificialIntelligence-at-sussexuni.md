@@ -1,0 +1,1 @@
+[#Research Fellow in Computational #neuroscience and #BioInspired #ArtificialIntelligence at @sussexuni](https://qi.tc/qi/111438)
