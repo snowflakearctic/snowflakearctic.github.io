@@ -1,0 +1,1 @@
+[New collaboration examines the path to responsible AI](https://qi.tc/qi/110908)
