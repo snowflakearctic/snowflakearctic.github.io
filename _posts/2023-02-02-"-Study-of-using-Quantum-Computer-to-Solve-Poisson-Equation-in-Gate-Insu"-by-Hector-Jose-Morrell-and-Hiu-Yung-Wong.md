@@ -1,0 +1,1 @@
+[" Study of using Quantum Computer to Solve Poisson Equation in Gate Insu" by Hector Jose Morrell and Hiu Yung Wong](https://qi.tc/qi/111118)
