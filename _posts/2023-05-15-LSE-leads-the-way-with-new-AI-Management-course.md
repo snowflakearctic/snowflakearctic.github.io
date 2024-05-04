@@ -1,0 +1,1 @@
+[LSE leads the way with new AI Management course](https://qi.tc/qi/113371)
