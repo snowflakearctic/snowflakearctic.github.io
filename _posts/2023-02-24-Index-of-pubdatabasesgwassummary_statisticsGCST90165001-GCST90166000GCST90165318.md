@@ -1,0 +1,1 @@
+[Index of /pub/databases/gwas/summary_statistics/GCST90165001-GCST90166000/GCST90165318](https://qi.tc/qi/111643)
