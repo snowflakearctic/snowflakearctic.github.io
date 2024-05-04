@@ -1,0 +1,1 @@
+[Berkeley Talks transcript : Jitendra Malik on the sensorimotor road to #ArtificialIntelligence   Berkeley News](https://qi.tc/qi/112275)
