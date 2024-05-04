@@ -1,0 +1,1 @@
+[November 2022 - Carolina #DataScience Now](https://qi.tc/qi/117465)
