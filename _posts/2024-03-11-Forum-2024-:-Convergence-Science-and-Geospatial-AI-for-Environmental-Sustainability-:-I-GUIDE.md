@@ -1,0 +1,1 @@
+[Forum 2024 : Convergence Science and #Geospatial AI for Environmental Sustainability : I-GUIDE](https://qi.tc/qi/119427)
