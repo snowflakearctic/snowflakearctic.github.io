@@ -1,0 +1,1 @@
+[Speculative Forensics : #MachineLearning and the Rise of Vocal Portraiture - Edinburgh Futures Institute](https://qi.tc/qi/112516)
