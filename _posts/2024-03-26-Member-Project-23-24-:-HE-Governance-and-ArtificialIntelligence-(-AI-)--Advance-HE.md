@@ -1,0 +1,1 @@
+[Member Project 23-24 : HE Governance and #ArtificialIntelligence ( AI )   Advance HE](https://qi.tc/qi/119636)
