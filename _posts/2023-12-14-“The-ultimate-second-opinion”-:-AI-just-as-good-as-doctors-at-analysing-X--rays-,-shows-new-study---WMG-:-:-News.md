@@ -1,0 +1,1 @@
+[“The ultimate second opinion” : AI just as good as doctors at analysing X -rays , shows new study - WMG : : News](https://qi.tc/qi/118668)
