@@ -1,0 +1,1 @@
+[Women in #DataScience conference at AUB brings together international speakers](https://qi.tc/qi/113894)
