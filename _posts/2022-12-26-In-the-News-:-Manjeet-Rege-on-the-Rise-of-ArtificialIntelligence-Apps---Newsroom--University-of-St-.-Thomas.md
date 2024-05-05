@@ -1,0 +1,1 @@
+[In the News : Manjeet Rege on the Rise of #ArtificialIntelligence Apps - Newsroom   University of St . Thomas](https://qi.tc/qi/110421)
