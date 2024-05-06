@@ -1,0 +1,1 @@
+[The School of #ComputerScience is looking to recruit new academics   #ComputerScience Blog](https://qi.tc/qi/117745)
