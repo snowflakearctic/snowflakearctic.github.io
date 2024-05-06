@@ -1,0 +1,1 @@
+[Applied Physics Seminar - Aleksander Kubica - Amazon Web Services Center for #QuantumComputing   Yale Quantum Institute](https://qi.tc/qi/111751)
