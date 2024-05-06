@@ -1,0 +1,1 @@
+[Data Perspectives in Motion - NC State #DataScience Academy ](https://qi.tc/qi/110019)
