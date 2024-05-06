@@ -1,0 +1,1 @@
+[Seminario de Introducción a la Inteligencia Artificial y Deep Learning-Educación Continua - UDES ](https://qi.tc/qi/8152)
