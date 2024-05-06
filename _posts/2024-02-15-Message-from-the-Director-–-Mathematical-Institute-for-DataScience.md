@@ -1,0 +1,1 @@
+[Message from the Director – Mathematical Institute for #DataScience](https://qi.tc/qi/119228)
