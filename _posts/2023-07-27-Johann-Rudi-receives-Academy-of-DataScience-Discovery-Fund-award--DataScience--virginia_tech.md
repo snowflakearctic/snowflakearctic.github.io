@@ -1,0 +1,1 @@
+[Johann Rudi receives Academy of #DataScience Discovery Fund award   #DataScience   @virginia_tech](https://qi.tc/qi/115367)
