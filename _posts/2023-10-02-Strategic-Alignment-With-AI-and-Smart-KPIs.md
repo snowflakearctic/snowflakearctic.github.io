@@ -1,0 +1,1 @@
+[Strategic Alignment With AI and Smart KPIs](https://qi.tc/qi/117790)
