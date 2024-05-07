@@ -1,0 +1,1 @@
+[Archived #Statistics - Men 's Basketball - Hope College](https://qi.tc/qi/110647)
