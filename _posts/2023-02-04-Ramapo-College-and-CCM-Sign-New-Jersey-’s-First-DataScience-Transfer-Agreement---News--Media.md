@@ -1,0 +1,1 @@
+[Ramapo College and CCM Sign New Jersey ’s First #DataScience Transfer Agreement - News / Media](https://qi.tc/qi/111165)
