@@ -1,0 +1,1 @@
+[Cornell Tech - AI vs. Artist : The Future of Creativity](https://qi.tc/qi/111657)
