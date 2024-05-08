@@ -1,0 +1,1 @@
+[" THE ROLE OF SECURITY ASSISTANCE IN MAINTAINING ACCESS TO STRATEGIC SOU" by William B. Hankee and Alwyn H. King](https://qi.tc/qi/117362)
