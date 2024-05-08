@@ -1,0 +1,1 @@
+[Institute awards 14 computational and data sciences seed grants - PSU Institute for Computational and Data Sciences   High Performance Computing at @penn_state](https://qi.tc/qi/119073)
