@@ -1,0 +1,1 @@
+[When will #ArtificialIntelligence really pass the test ?   Washington State Magazine   Washington State University](https://qi.tc/qi/112102)
