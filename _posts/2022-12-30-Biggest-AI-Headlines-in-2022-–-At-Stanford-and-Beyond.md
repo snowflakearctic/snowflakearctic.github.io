@@ -1,0 +1,1 @@
+[Biggest AI Headlines in 2022 – At Stanford and Beyond](https://qi.tc/qi/110458)
