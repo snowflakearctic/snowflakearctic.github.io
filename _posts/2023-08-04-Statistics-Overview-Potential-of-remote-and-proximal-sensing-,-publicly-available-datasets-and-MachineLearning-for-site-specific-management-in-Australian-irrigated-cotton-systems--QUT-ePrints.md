@@ -1,0 +1,1 @@
+[#Statistics Overview Potential of remote and proximal sensing , publicly available datasets and #MachineLearning for site-specific management in Australian irrigated cotton systems   QUT ePrints](https://qi.tc/qi/116083)
