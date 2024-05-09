@@ -1,0 +1,1 @@
+[Disease classification of macular optical coherence tomography scans using #DeepLearning software : validation on independent , multi-center data -ORCA](https://qi.tc/qi/114693)
