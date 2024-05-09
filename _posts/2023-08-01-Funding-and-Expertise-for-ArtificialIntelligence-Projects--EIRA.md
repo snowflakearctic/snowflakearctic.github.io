@@ -1,0 +1,1 @@
+[Funding and Expertise for #ArtificialIntelligence Projects   EIRA](https://qi.tc/qi/115768)
