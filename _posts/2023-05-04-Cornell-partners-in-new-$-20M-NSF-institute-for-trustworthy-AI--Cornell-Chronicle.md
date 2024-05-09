@@ -1,0 +1,1 @@
+[Cornell partners in new $ 20M NSF institute for trustworthy AI   Cornell Chronicle](https://qi.tc/qi/113130)
