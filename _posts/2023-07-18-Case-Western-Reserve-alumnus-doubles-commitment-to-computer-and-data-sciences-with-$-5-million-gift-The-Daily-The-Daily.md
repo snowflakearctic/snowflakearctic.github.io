@@ -1,0 +1,1 @@
+[Case Western Reserve alumnus doubles commitment to computer and data sciences with $ 5 million gift The Daily The Daily](https://qi.tc/qi/114873)
