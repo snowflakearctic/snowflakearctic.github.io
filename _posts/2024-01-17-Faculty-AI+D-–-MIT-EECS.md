@@ -1,0 +1,1 @@
+[Faculty AI+D – @MIT EECS](https://qi.tc/qi/118941)
