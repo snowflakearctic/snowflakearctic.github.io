@@ -1,0 +1,1 @@
+[Masterclass AI 2023   #ArtificialIntelligence Lab Brussels](https://qi.tc/qi/117845)
