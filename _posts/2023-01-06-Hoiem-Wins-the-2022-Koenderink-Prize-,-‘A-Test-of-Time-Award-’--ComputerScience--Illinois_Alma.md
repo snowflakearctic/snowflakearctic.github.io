@@ -1,0 +1,1 @@
+[Hoiem Wins the 2022 Koenderink Prize , ‘A Test of Time Award ’   #ComputerScience   @Illinois_Alma](https://qi.tc/qi/110549)
