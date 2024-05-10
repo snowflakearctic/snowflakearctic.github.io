@@ -1,0 +1,1 @@
+[Alumni Success Story - Raúl Prades , ZLOG 2014 and Global Senior Principal #DataScientist at PepsiCo - Zaragoza Logistics Center](https://qi.tc/qi/112529)
