@@ -1,0 +1,1 @@
+[Subscribe to SEI Bulletin   #SoftwareEngineering Institute](https://qi.tc/qi/115753)
