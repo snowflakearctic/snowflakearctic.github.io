@@ -1,0 +1,1 @@
+[Environmental impact of AI and its sustainability   VTx   @virginia_tech](https://qi.tc/qi/112828)
