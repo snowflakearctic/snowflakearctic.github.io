@@ -1,0 +1,1 @@
+[Accenture Working with Institute for #DataScience to Combat Software Supply Chain Attacks](https://qi.tc/qi/111254)
