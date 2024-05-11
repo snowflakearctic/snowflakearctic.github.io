@@ -1,0 +1,1 @@
+[Language Log » Mirabile scriptu : fake kanji created by AI](https://qi.tc/qi/110560)
