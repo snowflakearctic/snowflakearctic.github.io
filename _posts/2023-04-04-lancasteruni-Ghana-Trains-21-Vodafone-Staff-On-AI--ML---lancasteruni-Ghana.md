@@ -1,0 +1,1 @@
+[@lancasteruni Ghana Trains 21 Vodafone Staff On AI & ML - @lancasteruni Ghana](https://qi.tc/qi/112485)
