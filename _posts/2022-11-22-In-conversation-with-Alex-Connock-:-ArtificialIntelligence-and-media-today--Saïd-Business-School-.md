@@ -1,0 +1,1 @@
+[In conversation with Alex Connock : #ArtificialIntelligence and media today   Saïd Business School ](https://qi.tc/qi/18435)
