@@ -1,0 +1,1 @@
+[Faculty Profiles : School of Management - BML Munjal University ( BMU)](https://qi.tc/qi/115930)
