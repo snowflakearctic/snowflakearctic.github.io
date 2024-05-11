@@ -1,0 +1,1 @@
+[Reading Between the Cracks : #ArtificialIntelligence Can Identify Patterns in Surface Cracking to Assess Damage in Reinforced Concrete Structures](https://qi.tc/qi/113781)
