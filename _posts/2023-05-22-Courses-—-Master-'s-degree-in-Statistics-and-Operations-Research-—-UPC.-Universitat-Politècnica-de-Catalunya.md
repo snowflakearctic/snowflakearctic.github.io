@@ -1,0 +1,1 @@
+[Courses — Master 's degree in #Statistics and Operations #Research — UPC. Universitat Politècnica de Catalunya](https://qi.tc/qi/113527)
