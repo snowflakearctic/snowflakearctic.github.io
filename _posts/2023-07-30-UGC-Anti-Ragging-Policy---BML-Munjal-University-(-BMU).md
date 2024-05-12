@@ -1,0 +1,1 @@
+[UGC Anti-Ragging Policy - BML Munjal University ( BMU)](https://qi.tc/qi/115914)
