@@ -1,0 +1,1 @@
+[Practical Introduction to #QuantumComputing - DiRAC](https://qi.tc/qi/117973)
