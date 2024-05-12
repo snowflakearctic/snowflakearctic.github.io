@@ -1,0 +1,1 @@
+[Nowa kampania wizerunkowa Uniwersytetu Gdańskiego . Jako jedyna uczelnia w Polsce wykorzystaliśmy AI. Do czego ? Sprawdź !   Aktualności - Uniwersytet Gdański](https://qi.tc/qi/117618)
