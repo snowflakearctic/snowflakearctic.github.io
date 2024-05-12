@@ -1,0 +1,1 @@
+[ILPC AI & Humanities Seminar Series : Toward a Global Index for Measuring the State of #ResponsibleA I   Institute of Advanced Legal Studies](https://qi.tc/qi/113062)
