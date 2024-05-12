@@ -1,0 +1,1 @@
+[Executive MBA Programme - BML Munjal University ( BMU)](https://qi.tc/qi/116100)
