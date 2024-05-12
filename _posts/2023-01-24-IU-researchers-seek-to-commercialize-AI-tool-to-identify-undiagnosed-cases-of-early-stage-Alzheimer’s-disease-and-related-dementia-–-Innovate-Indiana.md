@@ -1,0 +1,1 @@
+[IU researchers seek to commercialize AI tool to identify undiagnosed cases of early-stage Alzheimer’s disease and related dementia – Innovate Indiana](https://qi.tc/qi/110920)
