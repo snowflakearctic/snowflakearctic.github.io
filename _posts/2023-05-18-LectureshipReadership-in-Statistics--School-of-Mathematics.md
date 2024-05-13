@@ -1,0 +1,1 @@
+[Lectureship/Readership in #Statistics   School of Mathematics](https://qi.tc/qi/113453)
