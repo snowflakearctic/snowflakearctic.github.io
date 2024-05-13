@@ -1,0 +1,1 @@
+[About the #Research Centre – AIMS Ghana](https://qi.tc/qi/115694)
