@@ -1,0 +1,1 @@
+[( PDF) COST MODEL FOR ESTABLISHING A DATA CENTER   International Journal of #ComputerScience , Engineering and Applications ( IJCSEA ) - Academia .edu ](https://qi.tc/qi/110268)
