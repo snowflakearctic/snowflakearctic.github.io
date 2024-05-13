@@ -1,0 +1,1 @@
+[workshop-quantum-comp – Comet Home](https://qi.tc/qi/113400)
