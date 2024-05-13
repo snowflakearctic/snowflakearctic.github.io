@@ -1,0 +1,1 @@
+[BIDS TextXD 2022 : Text Analysis Across Domains   Berkeley Institute for #DataScience ](https://qi.tc/qi/5919)
