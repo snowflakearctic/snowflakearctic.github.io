@@ -1,0 +1,1 @@
+[EICDT   Environmental Intelligence : </br>Data Science & AI for Sustainable Futures   University of Exeter ](https://qi.tc/qi/41935)
