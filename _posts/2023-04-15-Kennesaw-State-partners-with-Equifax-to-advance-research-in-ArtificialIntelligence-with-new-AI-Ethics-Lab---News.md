@@ -1,0 +1,1 @@
+[Kennesaw State partners with Equifax to advance research in #ArtificialIntelligence with new AI Ethics Lab - News](https://qi.tc/qi/112730)
