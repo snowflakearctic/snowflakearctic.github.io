@@ -1,0 +1,1 @@
+[Short course : #DataEngineering for the Social World   LSE Summer School](https://qi.tc/qi/118693)
