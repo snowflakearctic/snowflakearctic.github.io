@@ -1,0 +1,1 @@
+[Putting an ethical lens on AI : New guide helps start-ups navigate AI & ethics   Torrens University](https://qi.tc/qi/112624)
