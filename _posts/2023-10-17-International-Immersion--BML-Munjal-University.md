@@ -1,0 +1,1 @@
+[International Immersion   BML Munjal University](https://qi.tc/qi/118234)
