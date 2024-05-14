@@ -1,0 +1,1 @@
+[Data science skills workshop for SEEDS ecologists   #DataScience](https://qi.tc/qi/115573)
