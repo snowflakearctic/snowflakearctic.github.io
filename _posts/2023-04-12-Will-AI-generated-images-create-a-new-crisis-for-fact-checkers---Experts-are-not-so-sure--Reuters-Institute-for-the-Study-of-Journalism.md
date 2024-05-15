@@ -1,0 +1,1 @@
+[Will AI-generated images create a new crisis for fact-checkers ? Experts are not so sure   Reuters Institute for the Study of Journalism](https://qi.tc/qi/112656)
