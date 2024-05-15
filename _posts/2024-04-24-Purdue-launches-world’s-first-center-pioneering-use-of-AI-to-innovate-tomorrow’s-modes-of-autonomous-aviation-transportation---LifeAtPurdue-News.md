@@ -1,0 +1,1 @@
+[Purdue launches world’s first center pioneering use of AI to innovate tomorrow’s modes of autonomous aviation transportation - @LifeAtPurdue News](https://qi.tc/qi/119994)
