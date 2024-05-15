@@ -1,0 +1,1 @@
+[@unibirmingham wins £1.2m funding for AI and #DataScience scholarships - @unibirmingham](https://qi.tc/qi/112531)
