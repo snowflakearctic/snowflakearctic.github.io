@@ -1,0 +1,1 @@
+[The Symposium on #ArtificialIntelligence and Social Responsibility   Coordinated Science Laboratory   @Illinois_Alma](https://qi.tc/qi/119060)
