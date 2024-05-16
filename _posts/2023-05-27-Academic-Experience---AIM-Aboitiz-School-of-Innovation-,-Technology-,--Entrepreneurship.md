@@ -1,0 +1,1 @@
+[Academic Experience - AIM Aboitiz School of Innovation , Technology , & Entrepreneurship](https://qi.tc/qi/113659)
