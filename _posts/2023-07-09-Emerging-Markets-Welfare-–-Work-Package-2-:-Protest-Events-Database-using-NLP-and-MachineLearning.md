@@ -1,0 +1,1 @@
+[Emerging Markets Welfare – Work Package 2 : Protest Events Database using #NLP and #MachineLearning](https://qi.tc/qi/114007)
