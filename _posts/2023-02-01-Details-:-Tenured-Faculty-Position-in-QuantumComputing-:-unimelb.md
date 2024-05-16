@@ -1,0 +1,1 @@
+[Details : Tenured Faculty Position in #QuantumComputing : @unimelb](https://qi.tc/qi/111103)
