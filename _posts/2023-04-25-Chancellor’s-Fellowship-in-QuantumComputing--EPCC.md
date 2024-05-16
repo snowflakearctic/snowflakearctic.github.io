@@ -1,0 +1,1 @@
+[Chancellor’s #Fellowship in #QuantumComputing   EPCC](https://qi.tc/qi/112914)
