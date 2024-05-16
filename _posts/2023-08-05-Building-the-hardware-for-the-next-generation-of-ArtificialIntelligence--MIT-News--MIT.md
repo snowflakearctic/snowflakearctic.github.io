@@ -1,0 +1,1 @@
+[Building the hardware for the next generation of #ArtificialIntelligence   @MIT News   @MIT](https://qi.tc/qi/116193)
