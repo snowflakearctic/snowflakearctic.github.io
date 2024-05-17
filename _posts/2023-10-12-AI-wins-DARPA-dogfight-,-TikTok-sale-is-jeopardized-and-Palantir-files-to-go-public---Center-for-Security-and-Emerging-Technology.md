@@ -1,0 +1,1 @@
+[AI wins DARPA dogfight , TikTok sale is jeopardized and Palantir files to go public - Center for Security and Emerging Technology](https://qi.tc/qi/118090)
