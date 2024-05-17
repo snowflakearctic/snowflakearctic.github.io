@@ -1,0 +1,1 @@
+[Stanford Dogs dataset for Fine-Grained Visual Categorization](https://qi.tc/qi/113950)
