@@ -1,0 +1,1 @@
+[Regulating AI is a priority and we must act now , says University of Stirling academic   About   University of Stirling](https://qi.tc/qi/113540)
