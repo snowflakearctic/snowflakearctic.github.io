@@ -1,0 +1,1 @@
+[AI Procurement Analytics for Value Enhancement - SIPMM Publications](https://qi.tc/qi/116542)
