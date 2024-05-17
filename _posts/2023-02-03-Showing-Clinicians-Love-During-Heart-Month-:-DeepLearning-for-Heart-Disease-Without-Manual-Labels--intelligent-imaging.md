@@ -1,0 +1,1 @@
+[Showing Clinicians Love During Heart Month : #DeepLearning for Heart Disease Without Manual Labels   intelligent imaging](https://qi.tc/qi/111161)
