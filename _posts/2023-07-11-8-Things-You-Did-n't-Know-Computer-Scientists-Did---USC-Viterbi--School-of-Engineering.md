@@ -1,0 +1,1 @@
+[8 Things You Did n't Know Computer Scientists Did - @USC Viterbi   School of Engineering](https://qi.tc/qi/114193)
