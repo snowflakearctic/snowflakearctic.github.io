@@ -1,0 +1,1 @@
+[The DOD’s autonomous weapons policy gets an update , using AI to design antibodies from scratch , and the Air Force’s partnership with Howard U to research tactical autonomy - Center for Security and Emerging Technology](https://qi.tc/qi/110972)
