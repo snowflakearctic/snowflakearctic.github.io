@@ -1,0 +1,1 @@
+[( PDF) A penalty function method for exploratory adaptive-critic #NeuralNetwork control   gianluca di muro - Academia .edu](https://qi.tc/qi/117304)
