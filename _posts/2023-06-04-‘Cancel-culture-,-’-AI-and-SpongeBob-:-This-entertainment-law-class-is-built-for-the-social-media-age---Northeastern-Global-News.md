@@ -1,0 +1,1 @@
+[‘Cancel culture , ’ AI and SpongeBob : This entertainment law class is built for the social media age - Northeastern Global News](https://qi.tc/qi/113805)
