@@ -1,0 +1,1 @@
+[Someone has a plea to teach real-world math and statistics instead of “derivatives , quadratic equations , and the interior angles of rhombuses ”   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/112303)
