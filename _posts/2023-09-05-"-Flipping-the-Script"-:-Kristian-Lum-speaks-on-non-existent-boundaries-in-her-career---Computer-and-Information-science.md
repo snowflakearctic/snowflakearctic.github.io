@@ -1,0 +1,1 @@
+[" Flipping the Script" : Kristian Lum speaks on non-existent boundaries in her career - Computer and Information science](https://qi.tc/qi/117113)
