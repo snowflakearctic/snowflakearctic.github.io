@@ -1,0 +1,1 @@
+[" Innovations in Drop Shape Analysis using #DeepLearning and Solving the" by Andres P. Hyer](https://qi.tc/qi/113424)
