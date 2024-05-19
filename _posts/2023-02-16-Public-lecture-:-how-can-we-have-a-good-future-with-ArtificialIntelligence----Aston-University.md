@@ -1,0 +1,1 @@
+[Public lecture : how can we have a good future with #ArtificialIntelligence ?   Aston University](https://qi.tc/qi/111431)
