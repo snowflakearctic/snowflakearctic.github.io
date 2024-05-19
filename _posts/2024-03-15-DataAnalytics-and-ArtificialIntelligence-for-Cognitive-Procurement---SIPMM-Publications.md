@@ -1,0 +1,1 @@
+[#DataAnalytics and #ArtificialIntelligence for Cognitive Procurement - SIPMM Publications](https://qi.tc/qi/119451)
