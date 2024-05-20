@@ -1,0 +1,1 @@
+[D-Lab Workshop Empowers Students to Advance Social Justice in #DataScience - Berkeley Graduate Division](https://qi.tc/qi/111935)
