@@ -1,0 +1,1 @@
+[SCS Team Wins Meta Award for Work To Lower Financial , Environmental Costs of AI ](https://qi.tc/qi/9318)
