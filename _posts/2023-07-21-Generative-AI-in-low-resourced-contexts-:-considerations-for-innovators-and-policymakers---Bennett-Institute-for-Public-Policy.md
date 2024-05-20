@@ -1,0 +1,1 @@
+[Generative AI in low-resourced contexts : considerations for innovators and policymakers - Bennett Institute for Public Policy](https://qi.tc/qi/115188)
