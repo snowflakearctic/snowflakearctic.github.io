@@ -1,0 +1,1 @@
+[#DataScience Resources - Carolina #DataScience Now](https://qi.tc/qi/115008)
