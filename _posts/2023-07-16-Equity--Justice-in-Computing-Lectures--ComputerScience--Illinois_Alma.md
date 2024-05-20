@@ -1,0 +1,1 @@
+[Equity & Justice in Computing Lectures   #ComputerScience   @Illinois_Alma](https://qi.tc/qi/114721)
