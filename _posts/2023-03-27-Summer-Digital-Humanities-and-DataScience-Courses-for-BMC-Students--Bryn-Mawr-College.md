@@ -1,0 +1,1 @@
+[Summer Digital Humanities and #DataScience Courses for BMC Students   Bryn Mawr College](https://qi.tc/qi/112306)
