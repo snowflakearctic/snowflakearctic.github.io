@@ -1,0 +1,1 @@
+[Nitesh Chawla named fellow of the Association for Computing Machinery (ACM) for outstanding contributions in #MachineLearning - College of Engineering](https://qi.tc/qi/110987)
