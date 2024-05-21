@@ -1,0 +1,1 @@
+[UOH-TA-0024 #Lecturer in the Centre of Excellence for #DataScience , #ArtificialIntelligence , and Modelling ( DAIM ) – AI Ethics - Jobs at the University of Hull](https://qi.tc/qi/112023)
