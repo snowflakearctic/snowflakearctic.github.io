@@ -1,0 +1,1 @@
+[Can the government just go and ‘confidently and responsibly ’ buy #ArtificialIntelligence ? – @Bristol Uni Law School Blog](https://qi.tc/qi/113631)
