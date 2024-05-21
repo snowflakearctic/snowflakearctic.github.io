@@ -1,0 +1,1 @@
+[Using #ComputerVision technologies for analysing awkward postures in construction workers ( DU led )   @covcampus](https://qi.tc/qi/111299)
