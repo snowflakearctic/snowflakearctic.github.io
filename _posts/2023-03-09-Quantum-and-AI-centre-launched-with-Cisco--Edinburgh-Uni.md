@@ -1,0 +1,1 @@
+[Quantum and AI centre launched with Cisco   @Edinburgh Uni](https://qi.tc/qi/111954)
