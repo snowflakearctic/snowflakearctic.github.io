@@ -1,0 +1,1 @@
+[OVCRGE internal competition : Scientific #MachineLearning for Complex Systems due Feb. 7 – eCALS](https://qi.tc/qi/111124)
