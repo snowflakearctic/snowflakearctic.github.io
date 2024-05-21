@@ -1,0 +1,1 @@
+[EECS resources - Electrical Engineering & #ComputerScience - LibGuides at @MIT Libraries](https://qi.tc/qi/117714)
