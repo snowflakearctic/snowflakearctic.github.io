@@ -1,0 +1,1 @@
+[Gaining real-world industry experience through Break Through Tech AI at @MIT   @MIT News   @MIT](https://qi.tc/qi/110812)
