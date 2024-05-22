@@ -1,0 +1,1 @@
+[Vanderbilt launches Future of Learning and Generative AI Initiative and interdisciplinary advisory board   @Vanderbilt U](https://qi.tc/qi/113884)
