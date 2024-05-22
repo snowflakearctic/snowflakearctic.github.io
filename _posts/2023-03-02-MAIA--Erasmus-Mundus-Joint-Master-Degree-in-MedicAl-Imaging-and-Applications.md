@@ -1,0 +1,1 @@
+[MAIA   Erasmus Mundus Joint Master Degree in MedicAl Imaging and Applications](https://qi.tc/qi/111776)
