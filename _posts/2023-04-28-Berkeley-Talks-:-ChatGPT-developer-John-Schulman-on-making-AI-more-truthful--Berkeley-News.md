@@ -1,0 +1,1 @@
+[Berkeley Talks : ChatGPT developer John Schulman on making AI more truthful   Berkeley News](https://qi.tc/qi/113006)
