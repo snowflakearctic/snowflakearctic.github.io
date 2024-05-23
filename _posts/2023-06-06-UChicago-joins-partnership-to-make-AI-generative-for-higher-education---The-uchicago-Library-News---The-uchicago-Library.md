@@ -1,0 +1,1 @@
+[UChicago joins partnership to make AI generative for higher education - The @uchicago Library News - The @uchicago Library](https://qi.tc/qi/113854)
