@@ -1,0 +1,1 @@
+[TAMIDS 2022 SciML Workshop – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117393)
