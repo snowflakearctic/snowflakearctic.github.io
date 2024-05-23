@@ -1,0 +1,1 @@
+[This spring : Vanderbilt #DataScience Institute hosting AI Revolutions Symposium March 27/28   #DataScience   @Vanderbilt U](https://qi.tc/qi/112146)
