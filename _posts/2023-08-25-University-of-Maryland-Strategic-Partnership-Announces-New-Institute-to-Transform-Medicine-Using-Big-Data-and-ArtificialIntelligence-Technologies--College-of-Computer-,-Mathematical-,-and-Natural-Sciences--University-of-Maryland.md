@@ -1,0 +1,1 @@
+[University of Maryland Strategic Partnership Announces New Institute to Transform Medicine Using Big Data and #ArtificialIntelligence Technologies   College of Computer , Mathematical , and Natural Sciences   University of Maryland](https://qi.tc/qi/116835)
