@@ -1,0 +1,1 @@
+[AI-Enabled Recruiting : What is It and How Should a Manager Use It ?   Harvard Business Publishing Education](https://qi.tc/qi/118949)
