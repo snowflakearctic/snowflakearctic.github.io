@@ -1,0 +1,1 @@
+[Pests in our sight : new AI technology will save farmers hours on the job - CSU News ](https://qi.tc/qi/11936)
