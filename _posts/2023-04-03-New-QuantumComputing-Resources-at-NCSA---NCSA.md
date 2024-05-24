@@ -1,0 +1,1 @@
+[New #QuantumComputing Resources at NCSA - NCSA](https://qi.tc/qi/112468)
