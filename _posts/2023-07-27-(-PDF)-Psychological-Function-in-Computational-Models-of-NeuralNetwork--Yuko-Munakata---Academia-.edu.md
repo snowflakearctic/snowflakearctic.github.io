@@ -1,0 +1,1 @@
+[( PDF) Psychological Function in Computational Models of #NeuralNetwork   Yuko Munakata - Academia .edu](https://qi.tc/qi/115345)
