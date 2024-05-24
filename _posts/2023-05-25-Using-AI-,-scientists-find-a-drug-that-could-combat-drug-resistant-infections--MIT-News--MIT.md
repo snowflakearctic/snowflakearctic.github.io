@@ -1,0 +1,1 @@
+[Using AI , scientists find a drug that could combat drug-resistant infections   @MIT News   @MIT](https://qi.tc/qi/113612)
