@@ -1,0 +1,1 @@
+[INTELLECTUAL PROPERTY & ARTIFICIAL INTELLIGENCE : TRADEMARK ADMINISTRATION AND INFRINGEMENT - Centre for Intellectual Property and Information Technology law ](https://qi.tc/qi/52435)
