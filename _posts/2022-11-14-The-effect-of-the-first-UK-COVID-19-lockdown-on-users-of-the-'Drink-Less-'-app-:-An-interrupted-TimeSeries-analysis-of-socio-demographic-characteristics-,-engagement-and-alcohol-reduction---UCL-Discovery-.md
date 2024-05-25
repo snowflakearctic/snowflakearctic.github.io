@@ -1,0 +1,1 @@
+[The effect of the first UK COVID-19 lockdown on users of the 'Drink Less ' app : An interrupted #TimeSeries analysis of socio-demographic characteristics , engagement and alcohol reduction - @UCL Discovery ](https://qi.tc/qi/8798)
