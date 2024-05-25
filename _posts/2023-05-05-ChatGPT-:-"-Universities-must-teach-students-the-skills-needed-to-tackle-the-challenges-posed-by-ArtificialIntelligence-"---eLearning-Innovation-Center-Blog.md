@@ -1,0 +1,1 @@
+[ChatGPT : " Universities must teach students the skills needed to tackle the challenges posed by #ArtificialIntelligence " - eLearning Innovation Center Blog](https://qi.tc/qi/113153)
