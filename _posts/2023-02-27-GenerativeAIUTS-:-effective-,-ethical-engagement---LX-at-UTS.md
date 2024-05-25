@@ -1,0 +1,1 @@
+[GenerativeAI@UTS : effective , ethical engagement - LX at UTS](https://qi.tc/qi/111677)
