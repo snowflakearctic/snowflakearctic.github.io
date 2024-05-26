@@ -1,0 +1,1 @@
+[Quantum Game Hackathon - #QuantumComputing At Davis](https://qi.tc/qi/110860)
