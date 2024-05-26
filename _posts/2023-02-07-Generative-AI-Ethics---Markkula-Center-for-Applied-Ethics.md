@@ -1,0 +1,1 @@
+[Generative AI Ethics - Markkula Center for Applied Ethics](https://qi.tc/qi/111224)
