@@ -1,0 +1,1 @@
+[David Scoville – The Center for Analytics and #DataScience](https://qi.tc/qi/117591)
