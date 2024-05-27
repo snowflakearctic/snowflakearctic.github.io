@@ -1,0 +1,1 @@
+[What Should Leaders Make of the Latest AI?](https://qi.tc/qi/113067)
