@@ -1,0 +1,1 @@
+[#ArtificialIntelligence MSc ( 2023/24 ) • City , University of London ](https://qi.tc/qi/8873)
