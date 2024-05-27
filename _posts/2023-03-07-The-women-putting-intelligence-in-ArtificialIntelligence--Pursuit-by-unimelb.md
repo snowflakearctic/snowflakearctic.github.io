@@ -1,0 +1,1 @@
+[The women putting intelligence in #ArtificialIntelligence   Pursuit by @unimelb](https://qi.tc/qi/111872)
