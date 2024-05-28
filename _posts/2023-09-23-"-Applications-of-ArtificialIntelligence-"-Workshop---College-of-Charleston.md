@@ -1,0 +1,1 @@
+[" Applications of #ArtificialIntelligence " Workshop - College of Charleston](https://qi.tc/qi/117674)
