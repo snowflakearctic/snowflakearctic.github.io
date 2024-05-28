@@ -1,0 +1,1 @@
+[Inventing Intelligence : On the History of Complex Information Processing and #ArtificialIntelligence in the United States in the Mid-Twentieth Century](https://qi.tc/qi/112377)
