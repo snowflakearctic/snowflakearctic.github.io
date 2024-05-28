@@ -1,0 +1,1 @@
+[Alumna leads design of Adobe 's new AI software   College of Art and Design   RIT](https://qi.tc/qi/113615)
