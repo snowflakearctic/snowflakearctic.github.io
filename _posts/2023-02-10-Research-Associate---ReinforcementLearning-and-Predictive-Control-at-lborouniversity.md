@@ -1,0 +1,1 @@
+[#Research Associate - #ReinforcementLearning and Predictive Control at @lborouniversity](https://qi.tc/qi/111305)
