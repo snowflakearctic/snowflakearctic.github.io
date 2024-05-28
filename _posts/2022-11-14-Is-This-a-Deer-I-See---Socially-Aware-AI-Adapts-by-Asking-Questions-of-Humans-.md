@@ -1,0 +1,1 @@
+[Is This a Deer I See ? Socially Aware AI Adapts by Asking Questions of Humans ](https://qi.tc/qi/8688)
