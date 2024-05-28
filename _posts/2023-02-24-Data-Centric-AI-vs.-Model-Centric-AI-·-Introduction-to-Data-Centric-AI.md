@@ -1,0 +1,1 @@
+[Data-Centric AI vs. Model-Centric AI · Introduction to Data-Centric AI](https://qi.tc/qi/111636)
