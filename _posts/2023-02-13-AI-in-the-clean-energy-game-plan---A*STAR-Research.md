@@ -1,0 +1,1 @@
+[AI in the clean energy game plan - A*STAR #Research](https://qi.tc/qi/111333)
