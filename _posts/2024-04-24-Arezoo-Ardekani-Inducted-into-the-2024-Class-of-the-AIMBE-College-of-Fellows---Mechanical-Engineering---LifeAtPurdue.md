@@ -1,0 +1,1 @@
+[Arezoo Ardekani Inducted into the 2024 Class of the AIMBE College of Fellows - Mechanical Engineering - @LifeAtPurdue](https://qi.tc/qi/119992)
