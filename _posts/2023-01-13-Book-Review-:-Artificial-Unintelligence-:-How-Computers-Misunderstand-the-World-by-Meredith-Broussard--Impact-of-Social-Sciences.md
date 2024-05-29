@@ -1,0 +1,1 @@
+[Book Review : Artificial Unintelligence : How Computers Misunderstand the World by Meredith Broussard   Impact of Social Sciences](https://qi.tc/qi/110697)
