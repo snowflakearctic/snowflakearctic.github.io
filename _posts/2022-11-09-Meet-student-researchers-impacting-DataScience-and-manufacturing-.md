@@ -1,0 +1,1 @@
+[Meet student researchers impacting #DataScience and manufacturing ](https://qi.tc/qi/7517)
