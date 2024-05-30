@@ -1,0 +1,1 @@
+[William & Mary to lead #MachineLearning efforts for nuclear fusion – W&M News](https://qi.tc/qi/118103)
