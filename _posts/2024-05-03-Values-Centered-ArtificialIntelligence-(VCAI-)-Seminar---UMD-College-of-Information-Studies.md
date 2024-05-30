@@ -1,0 +1,1 @@
+[Values-Centered #ArtificialIntelligence (VCAI ) Seminar - UMD College of Information Studies](https://qi.tc/qi/120029)
