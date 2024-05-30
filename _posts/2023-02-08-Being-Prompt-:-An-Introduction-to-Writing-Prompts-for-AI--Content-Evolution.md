@@ -1,0 +1,1 @@
+[Being Prompt : An Introduction to Writing Prompts for AI   Content Evolution](https://qi.tc/qi/111258)
