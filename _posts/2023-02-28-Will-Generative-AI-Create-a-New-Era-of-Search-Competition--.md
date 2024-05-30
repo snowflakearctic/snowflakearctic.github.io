@@ -1,0 +1,1 @@
+[Will Generative AI Create a New Era of Search Competition ?](https://qi.tc/qi/111736)
