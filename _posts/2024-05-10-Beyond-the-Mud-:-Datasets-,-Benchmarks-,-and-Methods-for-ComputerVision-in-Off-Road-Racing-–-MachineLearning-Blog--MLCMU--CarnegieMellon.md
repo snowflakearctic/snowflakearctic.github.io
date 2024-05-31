@@ -1,0 +1,1 @@
+[Beyond the Mud : Datasets , Benchmarks , and Methods for #ComputerVision in Off-Road Racing – #MachineLearning Blog   ML@CMU   @CarnegieMellon](https://qi.tc/qi/120098)
