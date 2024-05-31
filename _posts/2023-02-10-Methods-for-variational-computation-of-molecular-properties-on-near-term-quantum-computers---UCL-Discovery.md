@@ -1,0 +1,1 @@
+[Methods for variational computation of molecular properties on near term quantum computers - @UCL Discovery](https://qi.tc/qi/111284)
