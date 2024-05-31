@@ -1,0 +1,1 @@
+[Senior #Lecturer in #DataScience ( Training and Capacity Building )](https://qi.tc/qi/112061)
