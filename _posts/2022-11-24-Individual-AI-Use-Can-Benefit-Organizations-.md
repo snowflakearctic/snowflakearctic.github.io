@@ -1,0 +1,1 @@
+[Individual AI Use Can Benefit Organizations ](https://qi.tc/qi/44443)
