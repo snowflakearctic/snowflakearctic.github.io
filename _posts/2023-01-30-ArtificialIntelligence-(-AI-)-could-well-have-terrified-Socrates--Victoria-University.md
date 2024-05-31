@@ -1,0 +1,1 @@
+[#ArtificialIntelligence ( AI ) could well have terrified Socrates   Victoria University](https://qi.tc/qi/111023)
