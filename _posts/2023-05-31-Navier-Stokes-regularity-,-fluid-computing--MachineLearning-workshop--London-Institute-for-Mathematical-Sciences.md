@@ -1,0 +1,1 @@
+[Navier-Stokes regularity , fluid computing & #MachineLearning workshop   London Institute for Mathematical Sciences](https://qi.tc/qi/113719)
