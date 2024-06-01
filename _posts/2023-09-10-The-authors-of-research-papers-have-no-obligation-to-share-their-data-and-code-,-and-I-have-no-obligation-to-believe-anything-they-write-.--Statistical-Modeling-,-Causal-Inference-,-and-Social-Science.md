@@ -1,0 +1,1 @@
+[The authors of research papers have no obligation to share their data and code , and I have no obligation to believe anything they write .   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/117397)
