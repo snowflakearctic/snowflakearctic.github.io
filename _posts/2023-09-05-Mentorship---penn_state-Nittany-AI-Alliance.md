@@ -1,0 +1,1 @@
+[Mentorship - @penn_state Nittany AI Alliance](https://qi.tc/qi/117040)
