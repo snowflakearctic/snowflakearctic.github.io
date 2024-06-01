@@ -1,0 +1,1 @@
+[Journal of Business , Ethics and Society - BML MUNJAL UNIVERSITY](https://qi.tc/qi/116097)
