@@ -1,0 +1,1 @@
+[UF Partners on NSF-Funded National #ArtificialIntelligence #Research Institute Focused on STEM Learning - Computer & Information Science & Engineering](https://qi.tc/qi/117344)
