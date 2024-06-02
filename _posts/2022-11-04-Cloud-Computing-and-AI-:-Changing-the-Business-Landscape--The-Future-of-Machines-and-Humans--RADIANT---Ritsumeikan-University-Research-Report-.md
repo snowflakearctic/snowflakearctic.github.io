@@ -1,0 +1,1 @@
+[Cloud Computing and AI : Changing the Business Landscape   The Future of Machines and Humans   RADIANT - Ritsumeikan University #Research Report ](https://qi.tc/qi/6604)
