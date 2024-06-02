@@ -1,0 +1,1 @@
+[Centre of Excellence for #DataScience , #ArtificialIntelligence and Modelling   University of Hull](https://qi.tc/qi/110355)
