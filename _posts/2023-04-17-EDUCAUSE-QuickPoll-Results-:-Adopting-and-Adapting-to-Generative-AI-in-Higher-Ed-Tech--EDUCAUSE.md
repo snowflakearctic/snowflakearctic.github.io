@@ -1,0 +1,1 @@
+[EDUCAUSE QuickPoll Results : Adopting and Adapting to Generative AI in Higher Ed Tech   EDUCAUSE](https://qi.tc/qi/112745)
