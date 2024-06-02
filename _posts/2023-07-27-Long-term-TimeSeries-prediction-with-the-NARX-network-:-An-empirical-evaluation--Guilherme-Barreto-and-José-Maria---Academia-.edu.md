@@ -1,0 +1,1 @@
+[Long-term #TimeSeries prediction with the NARX network : An empirical evaluation   Guilherme Barreto and José Maria - Academia .edu](https://qi.tc/qi/115349)
