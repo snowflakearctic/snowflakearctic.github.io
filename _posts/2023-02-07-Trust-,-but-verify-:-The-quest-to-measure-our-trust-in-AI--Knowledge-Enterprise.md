@@ -1,0 +1,1 @@
+[Trust , but verify : The quest to measure our trust in AI   Knowledge Enterprise](https://qi.tc/qi/111226)
