@@ -1,0 +1,1 @@
+[PhD Studentship in Entanglement swapping in a multi-module quantum computer at @sussexuni](https://qi.tc/qi/112812)
