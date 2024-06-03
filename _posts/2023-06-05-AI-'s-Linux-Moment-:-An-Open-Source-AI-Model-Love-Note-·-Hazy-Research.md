@@ -1,0 +1,1 @@
+[AI 's Linux Moment : An Open-Source AI Model Love Note · Hazy #Research](https://qi.tc/qi/113813)
