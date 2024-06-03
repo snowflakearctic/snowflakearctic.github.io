@@ -1,0 +1,1 @@
+[Workshop on AI in Health 2023](https://qi.tc/qi/111304)
