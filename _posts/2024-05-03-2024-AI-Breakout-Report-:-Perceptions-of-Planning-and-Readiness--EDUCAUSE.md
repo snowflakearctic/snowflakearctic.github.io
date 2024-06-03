@@ -1,0 +1,1 @@
+[2024 AI Breakout Report : Perceptions of Planning and Readiness   EDUCAUSE](https://qi.tc/qi/120032)
