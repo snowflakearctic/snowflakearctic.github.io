@@ -1,0 +1,1 @@
+[AIT Alum is First Recipient of the Xulhaz Mannan Inclusive Development Award Conferred by USAID – Office of Advancement and Alumni Affairs](https://qi.tc/qi/118293)
