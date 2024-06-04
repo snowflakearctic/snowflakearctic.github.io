@@ -1,0 +1,1 @@
+[The Future of Winning : How #DataScience Is Reshaping Politics and Advocacy   @Columbia School of Professional Studies](https://qi.tc/qi/112585)
