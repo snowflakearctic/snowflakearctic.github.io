@@ -1,0 +1,1 @@
+[BS Degree   Faculty of Computing & Data Sciences](https://qi.tc/qi/115856)
