@@ -1,0 +1,1 @@
+[iCubed Seminar : Accenture ( HYBRID ) - The #DataScience Institute at @Columbia ](https://qi.tc/qi/110210)
