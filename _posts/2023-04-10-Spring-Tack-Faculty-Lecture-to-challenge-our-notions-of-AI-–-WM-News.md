@@ -1,0 +1,1 @@
+[Spring Tack Faculty Lecture to challenge our notions of AI – W&M News](https://qi.tc/qi/112611)
