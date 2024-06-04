@@ -1,0 +1,1 @@
+[SIU business prof : AI as a tool for hiring , layoffs can be wonderful or dangerous](https://qi.tc/qi/111570)
