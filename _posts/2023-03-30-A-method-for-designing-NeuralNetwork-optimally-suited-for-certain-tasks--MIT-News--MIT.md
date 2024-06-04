@@ -1,0 +1,1 @@
+[A method for designing #NeuralNetwork optimally suited for certain tasks   @MIT News   @MIT](https://qi.tc/qi/112387)
