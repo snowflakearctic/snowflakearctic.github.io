@@ -1,0 +1,1 @@
+[Say hello to Oscar Sort , UK Recycling’s new AI-powered , waste-sorting system   UKNow](https://qi.tc/qi/112163)
