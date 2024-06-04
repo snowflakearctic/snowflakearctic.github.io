@@ -1,0 +1,1 @@
+[How California and other states are tackling AI legislation](https://qi.tc/qi/112214)
