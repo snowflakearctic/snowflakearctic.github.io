@@ -1,0 +1,1 @@
+[@MIT conference focuses on preparing workers for the era of #ArtificialIntelligence   @MIT News   @MIT](https://qi.tc/qi/111583)
