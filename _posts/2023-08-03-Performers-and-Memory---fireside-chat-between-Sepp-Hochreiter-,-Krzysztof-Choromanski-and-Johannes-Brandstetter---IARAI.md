@@ -1,0 +1,1 @@
+[Performers and Memory - fireside chat between Sepp Hochreiter , Krzysztof Choromanski and Johannes Brandstetter - IARAI](https://qi.tc/qi/115998)
