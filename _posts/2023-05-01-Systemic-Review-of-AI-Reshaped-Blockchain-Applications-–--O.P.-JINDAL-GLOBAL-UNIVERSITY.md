@@ -1,0 +1,1 @@
+[Systemic Review of AI Reshaped Blockchain Applications –   O.P. JINDAL GLOBAL UNIVERSITY](https://qi.tc/qi/113039)
