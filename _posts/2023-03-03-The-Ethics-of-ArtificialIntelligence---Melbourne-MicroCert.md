@@ -1,0 +1,1 @@
+[The Ethics of #ArtificialIntelligence - Melbourne MicroCert](https://qi.tc/qi/111798)
