@@ -1,0 +1,1 @@
+[Some thoughts inspired by Lee Cronbach ( 1975 ) , “Beyond the two disciplines of scientific psychology ”   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/110725)
