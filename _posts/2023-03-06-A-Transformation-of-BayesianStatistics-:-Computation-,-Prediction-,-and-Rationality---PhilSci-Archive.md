@@ -1,0 +1,1 @@
+[A Transformation of #BayesianStatistics : Computation , Prediction , and Rationality - PhilSci-Archive](https://qi.tc/qi/111855)
