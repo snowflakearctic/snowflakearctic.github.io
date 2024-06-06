@@ -1,0 +1,1 @@
+[Optimization could cut the carbon footprint of AI training by up to 75 %](https://qi.tc/qi/113138)
