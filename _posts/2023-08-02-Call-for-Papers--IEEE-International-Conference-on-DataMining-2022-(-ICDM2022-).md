@@ -1,0 +1,1 @@
+[Call for Papers   IEEE International Conference on #DataMining 2022 ( ICDM2022 )](https://qi.tc/qi/115894)
