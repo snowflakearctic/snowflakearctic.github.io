@@ -1,0 +1,1 @@
+[#DeepLearning for Trading and Risk Management – Professor WONG Hoi Ying - STA , CUHK](https://qi.tc/qi/114606)
