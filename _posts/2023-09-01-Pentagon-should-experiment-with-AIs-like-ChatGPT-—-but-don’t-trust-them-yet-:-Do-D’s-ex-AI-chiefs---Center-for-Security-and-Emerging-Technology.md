@@ -1,0 +1,1 @@
+[Pentagon should experiment with AIs like ChatGPT — but don’t trust them yet : Do D’s ex-AI chiefs - Center for Security and Emerging Technology](https://qi.tc/qi/116903)
