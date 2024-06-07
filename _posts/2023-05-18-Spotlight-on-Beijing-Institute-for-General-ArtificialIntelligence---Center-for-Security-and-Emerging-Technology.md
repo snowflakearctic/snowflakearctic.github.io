@@ -1,0 +1,1 @@
+[Spotlight on Beijing Institute for General #ArtificialIntelligence - Center for Security and Emerging Technology](https://qi.tc/qi/113449)
