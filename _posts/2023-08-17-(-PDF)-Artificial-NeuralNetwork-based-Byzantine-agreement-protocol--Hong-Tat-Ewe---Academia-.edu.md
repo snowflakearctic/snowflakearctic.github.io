@@ -1,0 +1,1 @@
+[( PDF) Artificial #NeuralNetwork based Byzantine agreement protocol   Hong Tat Ewe - Academia .edu](https://qi.tc/qi/116697)
