@@ -1,0 +1,1 @@
+[Convergence Curriculum for #Geospatial #DataScience : I-GUIDE](https://qi.tc/qi/111227)
