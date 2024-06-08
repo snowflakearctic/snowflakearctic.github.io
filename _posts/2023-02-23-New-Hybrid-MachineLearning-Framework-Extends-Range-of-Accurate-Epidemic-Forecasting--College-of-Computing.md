@@ -1,0 +1,1 @@
+[New Hybrid #MachineLearning Framework Extends Range of Accurate Epidemic Forecasting   College of Computing](https://qi.tc/qi/111620)
