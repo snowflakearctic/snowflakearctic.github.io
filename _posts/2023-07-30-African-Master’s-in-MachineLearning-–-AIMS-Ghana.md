@@ -1,0 +1,1 @@
+[African Master’s in #MachineLearning – AIMS Ghana](https://qi.tc/qi/115696)
