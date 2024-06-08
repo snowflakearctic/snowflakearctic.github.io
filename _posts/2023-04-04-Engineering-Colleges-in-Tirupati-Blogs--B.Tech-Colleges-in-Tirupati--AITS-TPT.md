@@ -1,0 +1,1 @@
+[Engineering Colleges in Tirupati  Blogs   B.Tech Colleges in Tirupati   AITS-TPT](https://qi.tc/qi/112505)
