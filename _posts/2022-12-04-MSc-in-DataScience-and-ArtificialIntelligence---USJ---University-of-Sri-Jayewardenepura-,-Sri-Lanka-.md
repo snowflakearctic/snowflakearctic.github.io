@@ -1,0 +1,1 @@
+[MSc in #DataScience and #ArtificialIntelligence - USJ - University of Sri Jayewardenepura , Sri Lanka ](https://qi.tc/qi/110001)
