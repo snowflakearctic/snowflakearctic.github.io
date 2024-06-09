@@ -1,0 +1,1 @@
+[Is the New Internet Prone to Old School Hacks ? – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/120310)
