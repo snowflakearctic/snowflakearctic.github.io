@@ -1,0 +1,1 @@
+[Jay Palat   Author Profile , @CarnegieMellon #SoftwareEngineering Institute](https://qi.tc/qi/117938)
