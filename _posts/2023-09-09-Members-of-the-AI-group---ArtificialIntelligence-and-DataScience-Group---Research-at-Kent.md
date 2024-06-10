@@ -1,0 +1,1 @@
+[Members of the AI-group - #ArtificialIntelligence and #DataScience Group - #Research at Kent](https://qi.tc/qi/117254)
