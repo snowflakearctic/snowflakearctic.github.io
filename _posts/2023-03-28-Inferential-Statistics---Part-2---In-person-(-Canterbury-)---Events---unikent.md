@@ -1,0 +1,1 @@
+[Inferential #Statistics - Part 2 - In person ( Canterbury ) - Events - @unikent](https://qi.tc/qi/112320)
