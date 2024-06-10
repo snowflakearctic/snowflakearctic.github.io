@@ -1,0 +1,1 @@
+[On AI and the Need for Consumer ( Consumed ? ) Protection - Markkula Center for Applied Ethics](https://qi.tc/qi/112386)
