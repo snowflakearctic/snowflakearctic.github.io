@@ -1,0 +1,1 @@
+[Department of #ArtificialIntelligence ( AI ) and #DataScience - Top Ranked University in India   Vel Tech Rangarajan Dr.Sagunthala R&D Institute of Science and Technology](https://qi.tc/qi/114156)
