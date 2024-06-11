@@ -1,0 +1,1 @@
+[Learning Individualized Treatment Rules with Many Treatments   @USC Big Data Health Science Center ](https://qi.tc/qi/109952)
