@@ -1,0 +1,1 @@
+[Interview with Alumni Award Winner Dr. Carrie Strief   #Statistics   College of Liberal Arts](https://qi.tc/qi/111537)
