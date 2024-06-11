@@ -1,0 +1,1 @@
+[MINDS Schools and Workshops – Mathematical Institute for #DataScience](https://qi.tc/qi/119190)
