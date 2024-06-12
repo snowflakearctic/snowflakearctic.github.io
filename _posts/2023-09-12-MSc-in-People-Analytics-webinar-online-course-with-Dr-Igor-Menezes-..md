@@ -1,0 +1,1 @@
+[MSc in People Analytics webinar online course with Dr Igor Menezes .](https://qi.tc/qi/117462)
