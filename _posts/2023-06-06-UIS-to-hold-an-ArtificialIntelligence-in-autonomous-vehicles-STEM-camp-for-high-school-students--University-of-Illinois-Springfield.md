@@ -1,0 +1,1 @@
+[UIS to hold an #ArtificialIntelligence in autonomous vehicles STEM camp for high school students   University of Illinois Springfield](https://qi.tc/qi/113865)
