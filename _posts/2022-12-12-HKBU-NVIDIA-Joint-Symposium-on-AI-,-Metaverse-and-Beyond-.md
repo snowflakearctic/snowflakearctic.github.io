@@ -1,0 +1,1 @@
+[HKBU-NVIDIA Joint Symposium on AI , Metaverse and Beyond ](https://qi.tc/qi/110178)
