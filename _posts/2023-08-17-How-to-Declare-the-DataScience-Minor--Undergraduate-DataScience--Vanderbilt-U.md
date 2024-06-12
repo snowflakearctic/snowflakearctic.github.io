@@ -1,0 +1,1 @@
+[How to Declare the #DataScience Minor   Undergraduate #DataScience   @Vanderbilt U](https://qi.tc/qi/116671)
