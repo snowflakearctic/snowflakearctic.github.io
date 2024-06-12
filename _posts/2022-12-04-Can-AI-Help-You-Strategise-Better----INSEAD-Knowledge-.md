@@ -1,0 +1,1 @@
+[Can AI Help You Strategise Better ?   INSEAD Knowledge ](https://qi.tc/qi/110002)
