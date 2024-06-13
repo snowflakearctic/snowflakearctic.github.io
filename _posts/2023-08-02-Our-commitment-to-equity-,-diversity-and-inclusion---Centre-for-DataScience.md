@@ -1,0 +1,1 @@
+[Our commitment to equity , diversity and inclusion - Centre for #DataScience](https://qi.tc/qi/115951)
