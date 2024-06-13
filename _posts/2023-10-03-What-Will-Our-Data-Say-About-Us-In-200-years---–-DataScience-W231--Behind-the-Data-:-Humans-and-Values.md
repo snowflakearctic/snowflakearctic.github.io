@@ -1,0 +1,1 @@
+[What Will Our Data Say About Us In 200 years ? – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/117813)
