@@ -1,0 +1,1 @@
+[DICIEMBRE 2022- UCAM TELECO - SMART KIDS Curso #MachineLearning - Home](https://qi.tc/qi/110378)
