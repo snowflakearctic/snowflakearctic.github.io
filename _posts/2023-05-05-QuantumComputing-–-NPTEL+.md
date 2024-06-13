@@ -1,0 +1,1 @@
+[#QuantumComputing – NPTEL+](https://qi.tc/qi/113150)
