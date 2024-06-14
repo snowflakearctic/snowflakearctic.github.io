@@ -1,0 +1,1 @@
+[Digital Matters   Workshop – Using #ArtificialIntelligence Tools for Creativity ( Trevor Smith )](https://qi.tc/qi/114267)
