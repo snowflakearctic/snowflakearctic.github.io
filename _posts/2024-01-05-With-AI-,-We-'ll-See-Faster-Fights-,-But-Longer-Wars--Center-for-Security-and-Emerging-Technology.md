@@ -1,0 +1,1 @@
+[With AI , We 'll See Faster Fights , But Longer Wars   Center for Security and Emerging Technology](https://qi.tc/qi/118897)
