@@ -1,0 +1,1 @@
+[Professor Ngozi Okidegbe Receives the AALS Minority Groups Section 2024 Derrick A. Bell Jr. Award   Faculty of Computing & Data Sciences](https://qi.tc/qi/118686)
