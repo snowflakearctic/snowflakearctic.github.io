@@ -1,0 +1,1 @@
+[How to Use AI in a Fair and Responsible Way - Knowledge at Wharton](https://qi.tc/qi/118498)
