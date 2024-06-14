@@ -1,0 +1,1 @@
+[TAMIDS SciML Lab Seminar Series : Paris Perdikaris : Bridging Physical Models and Observational Data with Physics-Informed #DeepLearning – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117369)
