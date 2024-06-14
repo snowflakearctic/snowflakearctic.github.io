@@ -1,0 +1,1 @@
+[Want Better GenAI Results ? Try Speed Bumps](https://qi.tc/qi/120363)
