@@ -1,0 +1,1 @@
+[Spatial Data Visualisation   Data Culture & Society](https://qi.tc/qi/118207)
