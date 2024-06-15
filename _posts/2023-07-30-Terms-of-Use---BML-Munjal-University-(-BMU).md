@@ -1,0 +1,1 @@
+[Terms of Use - BML Munjal University ( BMU)](https://qi.tc/qi/115631)
