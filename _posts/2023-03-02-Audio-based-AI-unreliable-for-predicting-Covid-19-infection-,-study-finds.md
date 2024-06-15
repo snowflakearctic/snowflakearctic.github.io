@@ -1,0 +1,1 @@
+[Audio-based AI unreliable for predicting Covid-19 infection , study finds](https://qi.tc/qi/111778)
