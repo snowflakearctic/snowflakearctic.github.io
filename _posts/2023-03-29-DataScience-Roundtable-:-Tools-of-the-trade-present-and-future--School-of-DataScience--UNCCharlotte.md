@@ -1,0 +1,1 @@
+[#DataScience Roundtable : Tools of the trade present and future   School of #DataScience   @UNCCharlotte](https://qi.tc/qi/112360)
