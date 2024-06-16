@@ -1,0 +1,1 @@
+[2023 - #ArtificialIntelligence and Higher Ed - The Seattle U Newsroom](https://qi.tc/qi/112939)
