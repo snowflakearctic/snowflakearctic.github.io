@@ -1,0 +1,1 @@
+[Apply Now for UG and PG Courses - BML Munjal University](https://qi.tc/qi/115918)
