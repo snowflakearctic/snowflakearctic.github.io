@@ -1,0 +1,1 @@
+[FlowGPT cofounder on his visionary AI project that 's speeding ahead in the AI market](https://qi.tc/qi/115485)
