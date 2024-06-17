@@ -1,0 +1,1 @@
+[From the Frontline to #DataScience Consulting – UCU Applied Sciences Faculty](https://qi.tc/qi/113769)
