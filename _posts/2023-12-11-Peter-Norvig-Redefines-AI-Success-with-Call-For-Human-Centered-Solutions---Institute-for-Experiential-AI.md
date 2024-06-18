@@ -1,0 +1,1 @@
+[Peter Norvig Redefines AI Success with Call For Human-Centered Solutions - Institute for Experiential AI](https://qi.tc/qi/118643)
