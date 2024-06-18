@@ -1,0 +1,1 @@
+[#DataScience Course in Bangalore   PGP in #DataScience Course](https://qi.tc/qi/113503)
