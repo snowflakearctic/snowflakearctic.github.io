@@ -1,0 +1,1 @@
+[DOE seeds first-principles study of AI and #DeepLearning , part of $ 4.3 million national initiative   Physics   @Illinois_Alma](https://qi.tc/qi/110533)
