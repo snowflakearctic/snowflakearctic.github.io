@@ -1,0 +1,1 @@
+[MSc #ArtificialIntelligence - @wlv_uni](https://qi.tc/qi/119626)
