@@ -1,0 +1,1 @@
+[I used to work at Google and now I 'm an AI researcher . Here 's why slowing down AI development is wise](https://qi.tc/qi/112755)
