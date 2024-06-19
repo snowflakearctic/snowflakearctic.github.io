@@ -1,0 +1,1 @@
+[From Adobe to AI : Digital Media Skills for a New Communication Landscape](https://qi.tc/qi/113747)
