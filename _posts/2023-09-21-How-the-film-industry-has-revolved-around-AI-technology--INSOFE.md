@@ -1,0 +1,1 @@
+[How the film industry has revolved around AI technology   INSOFE](https://qi.tc/qi/117601)
