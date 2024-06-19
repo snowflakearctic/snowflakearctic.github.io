@@ -1,0 +1,1 @@
+[#ArtificialIntelligence and the Future of Work - @MIT Work of the Future](https://qi.tc/qi/113666)
