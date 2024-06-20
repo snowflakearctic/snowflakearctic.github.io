@@ -1,0 +1,1 @@
+[HKUST Scientists Achieve Groundbreaking First by Applying #ArtificialIntelligence for Early Risk Forecasting of Alzheimer’s Disease   The Hong Kong University of Science and Technology](https://qi.tc/qi/113931)
