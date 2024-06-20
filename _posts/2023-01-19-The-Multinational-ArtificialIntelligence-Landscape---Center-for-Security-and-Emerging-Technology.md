@@ -1,0 +1,1 @@
+[The Multinational #ArtificialIntelligence Landscape - Center for Security and Emerging Technology](https://qi.tc/qi/110827)
