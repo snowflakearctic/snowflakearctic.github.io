@@ -1,0 +1,1 @@
+[Congratulations To Xiaolei Guo For Accepting An #Internship at Meta/Facebook ! – Alina Zare – #MachineLearning and Sensing Lab](https://qi.tc/qi/113585)
