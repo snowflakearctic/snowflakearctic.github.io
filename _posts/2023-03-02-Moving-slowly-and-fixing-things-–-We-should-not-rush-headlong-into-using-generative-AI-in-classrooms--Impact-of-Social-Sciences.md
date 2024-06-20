@@ -1,0 +1,1 @@
+[Moving slowly and fixing things – We should not rush headlong into using generative AI in classrooms   Impact of Social Sciences](https://qi.tc/qi/111780)
