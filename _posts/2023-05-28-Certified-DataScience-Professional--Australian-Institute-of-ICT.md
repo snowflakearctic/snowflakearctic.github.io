@@ -1,0 +1,1 @@
+[Certified #DataScience Professional   Australian Institute of ICT](https://qi.tc/qi/113663)
