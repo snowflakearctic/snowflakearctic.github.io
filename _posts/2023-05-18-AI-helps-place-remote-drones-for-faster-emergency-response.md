@@ -1,0 +1,1 @@
+[AI helps place remote drones for faster emergency response](https://qi.tc/qi/113465)
