@@ -1,0 +1,1 @@
+[Student wins fellowship to continue #QuantumComputing education   The College of Arts & Sciences](https://qi.tc/qi/111231)
