@@ -1,0 +1,1 @@
+[From Babbage to quantum computer : Which are the socio-cultural conditions for radical innovation ? – Centre for Innovation Management #Research](https://qi.tc/qi/112316)
