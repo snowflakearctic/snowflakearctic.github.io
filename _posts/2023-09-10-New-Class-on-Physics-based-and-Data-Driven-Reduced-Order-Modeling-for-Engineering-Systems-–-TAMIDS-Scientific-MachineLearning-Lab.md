@@ -1,0 +1,1 @@
+[New Class on Physics-based and Data-Driven Reduced-Order Modeling for Engineering Systems – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117396)
