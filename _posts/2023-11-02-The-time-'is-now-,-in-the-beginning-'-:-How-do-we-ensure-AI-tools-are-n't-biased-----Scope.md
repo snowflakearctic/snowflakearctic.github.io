@@ -1,0 +1,1 @@
+[The time 'is now , in the beginning ' : How do we ensure AI tools are n't biased ? - Scope](https://qi.tc/qi/118307)
