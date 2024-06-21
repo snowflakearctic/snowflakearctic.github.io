@@ -1,0 +1,1 @@
+[MINDS Winter School and Workshop 2021 – Mathematical Institute for #DataScience](https://qi.tc/qi/119189)
