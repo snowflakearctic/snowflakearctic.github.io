@@ -1,0 +1,1 @@
+[The Business Applications for AI in Health Care   Executive and Continuing Professional Education   @HarvardChanSPH](https://qi.tc/qi/118898)
