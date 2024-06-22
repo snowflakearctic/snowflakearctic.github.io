@@ -1,0 +1,1 @@
+[Alberto Abadie presents " Synthetic Controls for Experimental Design "   Applied #Statistics Workshop Gov 3009 ](https://qi.tc/qi/109957)
