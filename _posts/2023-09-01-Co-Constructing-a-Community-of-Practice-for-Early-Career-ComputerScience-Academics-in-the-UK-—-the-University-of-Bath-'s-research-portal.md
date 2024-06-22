@@ -1,0 +1,1 @@
+[Co-Constructing a Community of Practice for Early-Career #ComputerScience Academics in the UK — the University of Bath 's research portal](https://qi.tc/qi/116846)
