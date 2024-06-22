@@ -1,0 +1,1 @@
+[Significant Bits Newsletter   Manning College of Information and Computer Sciences   @UMassAmherst ](https://qi.tc/qi/110279)
