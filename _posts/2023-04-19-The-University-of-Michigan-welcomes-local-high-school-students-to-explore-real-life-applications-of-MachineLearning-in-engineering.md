@@ -1,0 +1,1 @@
+[The University of Michigan welcomes local high school students to explore real-life applications of #MachineLearning in engineering](https://qi.tc/qi/112796)
