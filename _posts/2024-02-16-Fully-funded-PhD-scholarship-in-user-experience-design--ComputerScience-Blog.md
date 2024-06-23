@@ -1,0 +1,1 @@
+[Fully-funded PhD scholarship in user experience design   #ComputerScience Blog](https://qi.tc/qi/119278)
