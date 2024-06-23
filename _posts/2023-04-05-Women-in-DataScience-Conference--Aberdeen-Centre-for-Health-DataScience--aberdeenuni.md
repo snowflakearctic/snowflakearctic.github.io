@@ -1,0 +1,1 @@
+[Women in #DataScience Conference   Aberdeen Centre for Health #DataScience   @aberdeenuni](https://qi.tc/qi/112515)
