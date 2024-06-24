@@ -1,0 +1,1 @@
+[Requirements   Bachelor of Science ( BSc ) , #ArtificialIntelligence major   Victoria University of Wellington](https://qi.tc/qi/110983)
