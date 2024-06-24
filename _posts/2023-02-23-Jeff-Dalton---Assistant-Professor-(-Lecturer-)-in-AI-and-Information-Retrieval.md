@@ -1,0 +1,1 @@
+[Jeff Dalton - Assistant Professor ( #Lecturer ) in AI and Information Retrieval](https://qi.tc/qi/111613)
