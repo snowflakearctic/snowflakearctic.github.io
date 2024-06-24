@@ -1,0 +1,1 @@
+[Professor Mary Ellen O’Connell to speak at international AI summit at The Hague   News   The Law School   @notredame](https://qi.tc/qi/111348)
