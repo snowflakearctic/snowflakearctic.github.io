@@ -1,0 +1,1 @@
+[Study : Rethinking how we report on AI research   Santa Fe Institute](https://qi.tc/qi/112770)
