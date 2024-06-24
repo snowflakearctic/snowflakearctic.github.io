@@ -1,0 +1,1 @@
+[Creating and Collecting Meaningful Musical Materials with #MachineLearning   @BerkeleyISchool](https://qi.tc/qi/113015)
