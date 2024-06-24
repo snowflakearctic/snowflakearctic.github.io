@@ -1,0 +1,1 @@
+[Business #DataAnalytics   Bangor University](https://qi.tc/qi/111878)
