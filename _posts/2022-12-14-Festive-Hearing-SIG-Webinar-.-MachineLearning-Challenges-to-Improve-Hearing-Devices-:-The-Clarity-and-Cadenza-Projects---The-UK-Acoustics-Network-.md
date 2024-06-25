@@ -1,0 +1,1 @@
+[Festive Hearing SIG Webinar . #MachineLearning Challenges to Improve Hearing Devices : The Clarity and Cadenza Projects - The UK Acoustics Network ](https://qi.tc/qi/110234)
