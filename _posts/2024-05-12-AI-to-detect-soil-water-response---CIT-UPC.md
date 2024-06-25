@@ -1,0 +1,1 @@
+[AI to detect soil water response - CIT UPC](https://qi.tc/qi/120135)
