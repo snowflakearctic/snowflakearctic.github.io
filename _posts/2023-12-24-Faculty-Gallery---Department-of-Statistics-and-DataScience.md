@@ -1,0 +1,1 @@
+[Faculty Gallery - Department of #Statistics and #DataScience](https://qi.tc/qi/118730)
