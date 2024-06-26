@@ -1,0 +1,1 @@
+[Identifying subtypes of heart failure from three electronic health record sources with #MachineLearning : an external , prognostic , and genetic validation study - @UCL Discovery](https://qi.tc/qi/113760)
