@@ -1,0 +1,1 @@
+[A UF researcher describes bias in #ArtificialIntelligence and pushes for 'algorithmic justice '   WUSF Public Media](https://qi.tc/qi/110461)
