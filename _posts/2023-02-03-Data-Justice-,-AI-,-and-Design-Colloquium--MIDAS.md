@@ -1,0 +1,1 @@
+[Data Justice , AI , and Design Colloquium   MIDAS](https://qi.tc/qi/111148)
