@@ -1,0 +1,1 @@
+[An Introduction to #ArtificialIntelligence for Federal Judge - SPL – Syracuse University](https://qi.tc/qi/120433)
