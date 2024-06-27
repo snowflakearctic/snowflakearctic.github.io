@@ -1,0 +1,1 @@
+[Exhibition launch : ' The debate on AI will continue and intensify '](https://qi.tc/qi/113152)
