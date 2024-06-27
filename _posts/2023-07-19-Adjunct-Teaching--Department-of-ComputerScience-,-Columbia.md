@@ -1,0 +1,1 @@
+[Adjunct Teaching   Department of #ComputerScience , @Columbia](https://qi.tc/qi/115068)
