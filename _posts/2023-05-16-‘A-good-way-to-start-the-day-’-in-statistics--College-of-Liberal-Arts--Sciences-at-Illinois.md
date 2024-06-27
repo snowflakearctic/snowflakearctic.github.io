@@ -1,0 +1,1 @@
+[‘A good way to start the day ’ in statistics   College of Liberal Arts & Sciences at Illinois](https://qi.tc/qi/113413)
