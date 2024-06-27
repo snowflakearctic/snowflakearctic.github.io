@@ -1,0 +1,1 @@
+[OII   Behind AI , a massive infrastructure is changing geopolitics](https://qi.tc/qi/112166)
