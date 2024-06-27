@@ -1,0 +1,1 @@
+[Farming with #ArtificialIntelligence   College of Agriculture and Life Sciences](https://qi.tc/qi/113333)
