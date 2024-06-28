@@ -1,0 +1,1 @@
+[Basheer Qolomany uses #ArtificialIntelligence , big data to advance health care – UNK News ](https://qi.tc/qi/9052)
