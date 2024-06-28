@@ -1,0 +1,1 @@
+[#Research Associate/Fellow in Spatial #Statistics at @uofglasgow](https://qi.tc/qi/112379)
