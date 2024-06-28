@@ -1,0 +1,1 @@
+[( PDF) Quantum Robotics , #NeuralNetwork and the Quantum Force Interpretation   Carlos Pedro Gonçalves - Academia .edu](https://qi.tc/qi/115364)
