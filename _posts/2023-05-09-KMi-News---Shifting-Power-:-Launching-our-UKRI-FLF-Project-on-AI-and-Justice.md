@@ -1,0 +1,1 @@
+[KMi News - Shifting Power : Launching our UKRI FLF Project on AI and Justice](https://qi.tc/qi/113225)
