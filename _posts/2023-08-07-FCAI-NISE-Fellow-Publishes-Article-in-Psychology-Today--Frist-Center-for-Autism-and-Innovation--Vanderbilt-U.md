@@ -1,0 +1,1 @@
+[FCAI NISE Fellow Publishes Article in Psychology Today   Frist Center for Autism and Innovation   @Vanderbilt U](https://qi.tc/qi/116243)
