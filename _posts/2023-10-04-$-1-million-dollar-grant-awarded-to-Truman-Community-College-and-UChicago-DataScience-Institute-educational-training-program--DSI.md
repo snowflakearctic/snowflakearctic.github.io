@@ -1,0 +1,1 @@
+[$ 1 million dollar grant awarded to Truman Community College and UChicago #DataScience Institute educational training program   DSI](https://qi.tc/qi/117863)
