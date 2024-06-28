@@ -1,0 +1,1 @@
+[From hoops star to AI scientist , UF/IFAS researcher hopes to help Florida farmers protect their soil - News](https://qi.tc/qi/117519)
