@@ -1,0 +1,1 @@
+[Here 's one AI made earlier   Saïd Business School ](https://qi.tc/qi/42441)
