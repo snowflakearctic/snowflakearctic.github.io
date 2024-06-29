@@ -1,0 +1,1 @@
+[New statistics on growing persecution against Christians - The Liberty Champion ](https://qi.tc/qi/110098)
