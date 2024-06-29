@@ -1,0 +1,1 @@
+[Integrating defeasible argumentation with fuzzy art #NeuralNetwork for pattern classification   Sergio Gomez - Academia .edu](https://qi.tc/qi/118446)
