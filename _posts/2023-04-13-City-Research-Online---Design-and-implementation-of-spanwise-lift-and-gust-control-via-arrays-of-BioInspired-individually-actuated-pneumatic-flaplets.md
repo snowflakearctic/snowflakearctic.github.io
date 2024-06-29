@@ -1,0 +1,1 @@
+[City #Research Online - Design and implementation of spanwise lift and gust control via arrays of #BioInspired individually actuated pneumatic flaplets](https://qi.tc/qi/112678)
