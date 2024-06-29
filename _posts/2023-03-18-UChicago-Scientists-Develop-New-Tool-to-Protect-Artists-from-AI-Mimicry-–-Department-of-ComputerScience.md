@@ -1,0 +1,1 @@
+[UChicago Scientists Develop New Tool to Protect Artists from AI Mimicry – Department of #ComputerScience](https://qi.tc/qi/112145)
