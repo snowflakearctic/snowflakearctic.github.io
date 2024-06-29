@@ -1,0 +1,1 @@
+[Data Architecture Laboratory Prospectus   Data Architecture Laboratory , Keio Resarch Insitute at SFC ](https://qi.tc/qi/6336)
