@@ -1,0 +1,1 @@
+[次世代デジタル社会基盤研究領域の篠田教授らがPerCom2024においてBest Demo Awardを受賞   JAIST 北陸先端科学技術大学院大学](https://qi.tc/qi/120228)
