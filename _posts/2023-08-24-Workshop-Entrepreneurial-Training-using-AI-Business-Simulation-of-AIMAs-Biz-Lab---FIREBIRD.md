@@ -1,0 +1,1 @@
+[Workshop Entrepreneurial Training using AI Business Simulation of AIMAs Biz Lab - FIREBIRD](https://qi.tc/qi/116788)
