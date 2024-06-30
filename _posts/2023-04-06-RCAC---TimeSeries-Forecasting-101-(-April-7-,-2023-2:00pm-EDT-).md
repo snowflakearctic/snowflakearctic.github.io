@@ -1,0 +1,1 @@
+[RCAC - #TimeSeries Forecasting 101 ( April 7 , 2023 2:00pm EDT )](https://qi.tc/qi/112558)
