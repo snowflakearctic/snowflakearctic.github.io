@@ -1,0 +1,1 @@
+[Distinguished Speaker Seminar with David Firth   statistics](https://qi.tc/qi/111531)
