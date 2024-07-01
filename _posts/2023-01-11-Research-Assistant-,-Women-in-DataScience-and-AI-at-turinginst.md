@@ -1,0 +1,1 @@
+[#Research Assistant , Women in #DataScience and AI at @turinginst](https://qi.tc/qi/110630)
