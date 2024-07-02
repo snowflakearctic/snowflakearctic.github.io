@@ -1,0 +1,1 @@
+[Apply for a Master of Arts in #Statistics and #DataScience - Department of #Statistics and #DataScience](https://qi.tc/qi/118735)
