@@ -1,0 +1,1 @@
+[AI Business Challenge - Universidad ORT Uruguay](https://qi.tc/qi/113886)
