@@ -1,0 +1,1 @@
+[Alumni   Master 's in Health Informatics & #DataScience   Georgetown University](https://qi.tc/qi/110654)
