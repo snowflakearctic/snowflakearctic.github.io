@@ -1,0 +1,1 @@
+[Climate Risk and Preferences over the Size of Government : Evidence from California Wildfires   The Review of Economics and #Statistics   @MIT Press](https://qi.tc/qi/112414)
