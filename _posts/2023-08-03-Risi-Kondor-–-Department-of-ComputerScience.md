@@ -1,0 +1,1 @@
+[Risi Kondor – Department of #ComputerScience](https://qi.tc/qi/116024)
