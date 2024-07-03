@@ -1,0 +1,1 @@
+[AI-Powered Writing : Recapping AIAB 's ChatGPT Workshop using ChatGPT - AI & Analytics for Business](https://qi.tc/qi/113859)
