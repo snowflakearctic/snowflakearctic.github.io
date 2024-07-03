@@ -1,0 +1,1 @@
+[Purdue announces 3-pronged ‘Purdue Computes ’ initiative : Propel #ComputerScience to the nation’s top 10 , launch the Institute of Physical AI and expand semiconductor facilities - @LifeAtPurdue News](https://qi.tc/qi/112729)
