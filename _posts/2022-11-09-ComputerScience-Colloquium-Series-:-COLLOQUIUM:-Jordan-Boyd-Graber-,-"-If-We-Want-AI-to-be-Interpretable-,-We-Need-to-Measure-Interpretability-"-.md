@@ -1,0 +1,1 @@
+[#ComputerScience Colloquium Series : COLLOQUIUM: Jordan Boyd-Graber , " If We Want AI to be Interpretable , We Need to Measure Interpretability " ](https://qi.tc/qi/7673)
