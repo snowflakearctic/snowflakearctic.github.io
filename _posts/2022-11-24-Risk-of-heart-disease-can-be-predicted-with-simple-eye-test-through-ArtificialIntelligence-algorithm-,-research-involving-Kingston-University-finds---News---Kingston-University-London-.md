@@ -1,0 +1,1 @@
+[Risk of heart disease can be predicted with simple eye test through #ArtificialIntelligence algorithm , research involving Kingston University finds - News - Kingston University London ](https://qi.tc/qi/41435)
