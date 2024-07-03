@@ -1,0 +1,1 @@
+[The Future of #ArtificialIntelligence : Pros and Cons – The Rice Gazette](https://qi.tc/qi/118082)
