@@ -1,0 +1,1 @@
+[AI and #ResponsibleDS · @thehdsr](https://qi.tc/qi/120444)
