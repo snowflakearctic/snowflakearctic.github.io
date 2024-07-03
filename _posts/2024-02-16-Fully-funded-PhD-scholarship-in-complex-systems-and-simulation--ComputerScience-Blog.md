@@ -1,0 +1,1 @@
+[Fully-funded PhD scholarship in complex systems and simulation   #ComputerScience Blog](https://qi.tc/qi/119251)
