@@ -1,0 +1,1 @@
+[Shaping AI team at the @warwickuni publishes report evaluating AI research controversies ( 2012-2022 )](https://qi.tc/qi/112967)
