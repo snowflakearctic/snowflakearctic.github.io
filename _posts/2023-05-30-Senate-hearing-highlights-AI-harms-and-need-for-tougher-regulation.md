@@ -1,0 +1,1 @@
+[Senate hearing highlights AI harms and need for tougher regulation](https://qi.tc/qi/113691)
