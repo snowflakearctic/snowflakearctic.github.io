@@ -1,0 +1,1 @@
+[John Hyde - The #DataScience Institute at @Columbia](https://qi.tc/qi/117780)
