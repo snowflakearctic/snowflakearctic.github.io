@@ -1,0 +1,1 @@
+[Don’t Get Distracted by the Hype Around Generative AI](https://qi.tc/qi/113658)
