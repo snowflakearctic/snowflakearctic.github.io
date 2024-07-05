@@ -1,0 +1,1 @@
+[UC Santa Cruz launches new graduate program in #NLP](https://qi.tc/qi/117784)
