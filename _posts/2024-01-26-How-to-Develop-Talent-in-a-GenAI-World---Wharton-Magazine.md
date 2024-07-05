@@ -1,0 +1,1 @@
+[How to Develop Talent in a GenAI World - Wharton Magazine](https://qi.tc/qi/119065)
