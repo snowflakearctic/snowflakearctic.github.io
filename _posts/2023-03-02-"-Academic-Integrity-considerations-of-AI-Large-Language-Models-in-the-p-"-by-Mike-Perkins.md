@@ -1,0 +1,1 @@
+[" Academic Integrity considerations of AI Large Language Models in the p " by Mike Perkins](https://qi.tc/qi/111764)
