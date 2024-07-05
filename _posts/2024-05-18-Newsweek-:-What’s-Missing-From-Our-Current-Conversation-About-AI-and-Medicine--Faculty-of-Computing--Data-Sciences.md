@@ -1,0 +1,1 @@
+[Newsweek : What’s Missing From Our Current Conversation About AI and Medicine   Faculty of Computing & Data Sciences](https://qi.tc/qi/120175)
