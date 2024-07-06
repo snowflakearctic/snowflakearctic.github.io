@@ -1,0 +1,1 @@
+[Seminari " #MachineLearning that powers Amazon Alexa "   Estudis de Lingüística General](https://qi.tc/qi/111927)
