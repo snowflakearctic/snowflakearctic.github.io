@@ -1,0 +1,1 @@
+[AI-equipped eyeglasses can read silent speech   Cornell Chronicle](https://qi.tc/qi/112556)
