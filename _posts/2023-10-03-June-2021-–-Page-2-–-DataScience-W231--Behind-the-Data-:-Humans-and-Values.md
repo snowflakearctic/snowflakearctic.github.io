@@ -1,0 +1,1 @@
+[June 2021 – Page 2 – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/117800)
