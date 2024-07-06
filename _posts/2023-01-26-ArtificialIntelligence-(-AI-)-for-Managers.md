@@ -1,0 +1,1 @@
+[#ArtificialIntelligence ( AI ) for Managers](https://qi.tc/qi/110960)
