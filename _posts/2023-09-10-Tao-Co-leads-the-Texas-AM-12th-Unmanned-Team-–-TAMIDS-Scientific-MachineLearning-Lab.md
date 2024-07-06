@@ -1,0 +1,1 @@
+[Tao Co-leads the Texas A&M 12th Unmanned Team – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117368)
