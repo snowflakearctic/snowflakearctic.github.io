@@ -1,0 +1,1 @@
+[NTS Insight ( Oct 2009 – Issue 1 )   The AICHR Framework for Action - RSIS](https://qi.tc/qi/120342)
