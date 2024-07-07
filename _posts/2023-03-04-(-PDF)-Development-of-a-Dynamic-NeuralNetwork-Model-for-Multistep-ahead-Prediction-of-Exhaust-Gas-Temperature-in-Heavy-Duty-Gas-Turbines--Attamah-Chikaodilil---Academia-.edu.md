@@ -1,0 +1,1 @@
+[( PDF) Development of a Dynamic #NeuralNetwork Model for Multistep ahead Prediction of Exhaust Gas Temperature in Heavy Duty Gas Turbines   Attamah Chikaodilil - Academia .edu](https://qi.tc/qi/111828)
