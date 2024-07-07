@@ -1,0 +1,1 @@
+[Improving Strategic Execution With #MachineLearning - @MIT SMR Store](https://qi.tc/qi/119230)
