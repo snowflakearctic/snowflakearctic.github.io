@@ -1,0 +1,1 @@
+[Faculty Develops #DataScience Hub Inspiring Impact , Innovation in Egypt and Beyond   The American University in Cairo ](https://qi.tc/qi/110064)
