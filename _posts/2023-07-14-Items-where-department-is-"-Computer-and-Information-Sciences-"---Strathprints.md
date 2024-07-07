@@ -1,0 +1,1 @@
+[Items where department is " Computer and Information Sciences " - Strathprints](https://qi.tc/qi/114472)
