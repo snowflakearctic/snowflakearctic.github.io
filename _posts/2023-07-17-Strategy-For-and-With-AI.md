@@ -1,0 +1,1 @@
+[Strategy For and With AI](https://qi.tc/qi/114767)
