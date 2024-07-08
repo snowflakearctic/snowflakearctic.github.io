@@ -1,0 +1,1 @@
+[CSEP 573 Introduction to AI](https://qi.tc/qi/120519)
