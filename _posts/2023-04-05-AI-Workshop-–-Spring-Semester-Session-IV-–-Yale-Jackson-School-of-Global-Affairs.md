@@ -1,0 +1,1 @@
+[AI Workshop – Spring Semester Session IV – Yale Jackson School of Global Affairs](https://qi.tc/qi/112534)
