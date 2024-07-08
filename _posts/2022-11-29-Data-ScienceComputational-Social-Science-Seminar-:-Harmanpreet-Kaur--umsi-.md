@@ -1,0 +1,1 @@
+[Data Science/Computational Social Science Seminar : Harmanpreet Kaur   umsi ](https://qi.tc/qi/106436)
