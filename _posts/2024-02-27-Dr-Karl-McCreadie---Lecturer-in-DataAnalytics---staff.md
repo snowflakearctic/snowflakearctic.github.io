@@ -1,0 +1,1 @@
+[Dr Karl McCreadie - #Lecturer in #DataAnalytics - staff](https://qi.tc/qi/119340)
