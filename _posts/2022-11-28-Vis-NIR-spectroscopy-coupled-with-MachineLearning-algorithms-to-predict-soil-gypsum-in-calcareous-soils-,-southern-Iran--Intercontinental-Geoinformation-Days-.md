@@ -1,0 +1,1 @@
+[Vis-NIR spectroscopy coupled with #MachineLearning algorithms to predict soil gypsum in calcareous soils , southern Iran   Intercontinental Geoinformation Days ](https://qi.tc/qi/94435)
