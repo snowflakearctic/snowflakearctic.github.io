@@ -1,0 +1,1 @@
+[Level 6 #DataScientist Degree #apprenticeship BSc ( Hons ) Undergraduate Course   @Trent Uni](https://qi.tc/qi/115510)
