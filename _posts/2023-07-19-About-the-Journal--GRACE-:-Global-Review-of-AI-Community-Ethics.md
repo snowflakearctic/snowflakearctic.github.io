@@ -1,0 +1,1 @@
+[About the Journal   GRACE : Global Review of AI Community Ethics](https://qi.tc/qi/115114)
