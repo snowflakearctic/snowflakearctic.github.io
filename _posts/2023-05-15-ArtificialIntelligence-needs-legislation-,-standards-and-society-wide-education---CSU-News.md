@@ -1,0 +1,1 @@
+[#ArtificialIntelligence needs legislation , standards and society-wide education - CSU News](https://qi.tc/qi/113394)
