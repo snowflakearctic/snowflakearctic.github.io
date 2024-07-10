@@ -1,0 +1,1 @@
+[( PDF) #NeuralNetwork in Maude⋆   Gustavo Santos-García - Academia .edu](https://qi.tc/qi/116696)
