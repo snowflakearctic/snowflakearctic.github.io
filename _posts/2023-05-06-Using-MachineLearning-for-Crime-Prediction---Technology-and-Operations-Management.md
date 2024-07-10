@@ -1,0 +1,1 @@
+[Using #MachineLearning for Crime Prediction - Technology and Operations Management](https://qi.tc/qi/113169)
