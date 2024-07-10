@@ -1,0 +1,1 @@
+[#DataScience Minor Requirements   Undergraduate #DataScience   @Vanderbilt U](https://qi.tc/qi/116674)
