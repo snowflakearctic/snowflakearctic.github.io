@@ -1,0 +1,1 @@
+[Renowned data scientist joins UTS Human Technology Institute   University of Technology Sydney ](https://qi.tc/qi/9424)
