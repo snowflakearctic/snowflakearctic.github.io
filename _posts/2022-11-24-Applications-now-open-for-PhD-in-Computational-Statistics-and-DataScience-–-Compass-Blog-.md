@@ -1,0 +1,1 @@
+[Applications now open for PhD in Computational #Statistics and #DataScience – Compass Blog ](https://qi.tc/qi/43938)
