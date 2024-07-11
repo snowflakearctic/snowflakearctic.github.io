@@ -1,0 +1,1 @@
+[New EU project to reduce discrimination through AI - CSH ](https://qi.tc/qi/10156)
