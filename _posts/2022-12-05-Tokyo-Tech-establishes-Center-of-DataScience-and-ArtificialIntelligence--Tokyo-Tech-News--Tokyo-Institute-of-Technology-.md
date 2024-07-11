@@ -1,0 +1,1 @@
+[Tokyo Tech establishes Center of #DataScience and #ArtificialIntelligence   Tokyo Tech News   Tokyo Institute of Technology ](https://qi.tc/qi/110008)
