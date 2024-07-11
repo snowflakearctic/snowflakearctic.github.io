@@ -1,0 +1,1 @@
+[Oxford spinout Optellum secures $ 14m funding to advance pioneering AI-powered lung #Cancer diagnosis technology — OxCODE](https://qi.tc/qi/114442)
