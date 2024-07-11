@@ -1,0 +1,1 @@
+[AI Resources for Students Spotlighted at 2023 Tech Fair   @UF Information Technology News](https://qi.tc/qi/116185)
