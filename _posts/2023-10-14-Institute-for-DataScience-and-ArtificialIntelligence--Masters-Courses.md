@@ -1,0 +1,1 @@
+[Institute for #DataScience and #ArtificialIntelligence   Masters Courses](https://qi.tc/qi/118115)
