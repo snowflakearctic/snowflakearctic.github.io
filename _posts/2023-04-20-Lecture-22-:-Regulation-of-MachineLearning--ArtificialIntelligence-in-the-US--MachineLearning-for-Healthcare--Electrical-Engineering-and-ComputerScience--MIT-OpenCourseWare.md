@@ -1,0 +1,1 @@
+[Lecture 22 : Regulation of #MachineLearning / #ArtificialIntelligence in the US   #MachineLearning for Healthcare   Electrical Engineering and #ComputerScience   @MIT OpenCourseWare](https://qi.tc/qi/112826)
