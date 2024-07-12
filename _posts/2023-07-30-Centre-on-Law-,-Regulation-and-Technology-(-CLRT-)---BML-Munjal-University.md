@@ -1,0 +1,1 @@
+[Centre on Law , Regulation and Technology ( CLRT ) - BML Munjal University](https://qi.tc/qi/116108)
