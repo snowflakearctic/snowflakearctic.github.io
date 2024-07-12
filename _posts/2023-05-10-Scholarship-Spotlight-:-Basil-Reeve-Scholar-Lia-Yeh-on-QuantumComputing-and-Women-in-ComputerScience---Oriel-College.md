@@ -1,0 +1,1 @@
+[Scholarship Spotlight : Basil Reeve Scholar Lia Yeh on #QuantumComputing and Women in #ComputerScience - Oriel College](https://qi.tc/qi/113271)
