@@ -1,0 +1,1 @@
+[#ArtificialIntelligence Big #DataAnalytics Security R&D Center ( GAZİAICENTER )   Gazi University](https://qi.tc/qi/113123)
