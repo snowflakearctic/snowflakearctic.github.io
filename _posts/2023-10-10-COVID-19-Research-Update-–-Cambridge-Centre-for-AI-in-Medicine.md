@@ -1,0 +1,1 @@
+[COVID-19 #Research Update – Cambridge Centre for AI in Medicine](https://qi.tc/qi/118057)
