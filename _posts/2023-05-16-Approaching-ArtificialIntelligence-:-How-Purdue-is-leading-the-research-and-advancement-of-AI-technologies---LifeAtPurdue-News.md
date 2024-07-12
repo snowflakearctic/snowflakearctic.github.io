@@ -1,0 +1,1 @@
+[Approaching #ArtificialIntelligence : How Purdue is leading the research and advancement of AI technologies - @LifeAtPurdue News](https://qi.tc/qi/113396)
