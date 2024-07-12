@@ -1,0 +1,1 @@
+[Mayank Varia on security and privacy of end-to-end messaging   Faculty of Computing & Data Sciences](https://qi.tc/qi/117614)
