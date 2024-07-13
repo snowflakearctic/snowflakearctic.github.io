@@ -1,0 +1,1 @@
+[How to Apply : Accelerated BS/MPS in #DataScience – Office of Professional Programs](https://qi.tc/qi/114277)
