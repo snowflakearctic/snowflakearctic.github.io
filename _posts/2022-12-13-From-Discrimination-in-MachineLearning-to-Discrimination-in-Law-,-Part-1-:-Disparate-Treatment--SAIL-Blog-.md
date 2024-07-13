@@ -1,0 +1,1 @@
+[From Discrimination in #MachineLearning to Discrimination in Law , Part 1 : Disparate Treatment   SAIL Blog ](https://qi.tc/qi/110211)
