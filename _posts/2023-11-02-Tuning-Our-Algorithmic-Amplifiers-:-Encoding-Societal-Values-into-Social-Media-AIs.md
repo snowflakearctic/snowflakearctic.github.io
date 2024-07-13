@@ -1,0 +1,1 @@
+[Tuning Our Algorithmic Amplifiers : Encoding Societal Values into Social Media AIs](https://qi.tc/qi/118301)
