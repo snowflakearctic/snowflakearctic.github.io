@@ -1,0 +1,1 @@
+[Pierre Baldi has an idea about #DeepLearning – UCI News](https://qi.tc/qi/118895)
