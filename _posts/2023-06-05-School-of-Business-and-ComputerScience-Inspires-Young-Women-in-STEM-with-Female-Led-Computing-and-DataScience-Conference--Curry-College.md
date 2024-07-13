@@ -1,0 +1,1 @@
+[School of Business and #ComputerScience Inspires Young Women in STEM with Female-Led Computing and #DataScience Conference   Curry College](https://qi.tc/qi/113830)
