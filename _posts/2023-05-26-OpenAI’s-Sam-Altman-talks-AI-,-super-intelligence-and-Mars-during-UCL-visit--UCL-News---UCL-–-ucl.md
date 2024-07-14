@@ -1,0 +1,1 @@
+[OpenAI’s Sam Altman talks AI , super-intelligence and Mars during @UCL visit   @UCL News - @UCL – @ucl](https://qi.tc/qi/113633)
