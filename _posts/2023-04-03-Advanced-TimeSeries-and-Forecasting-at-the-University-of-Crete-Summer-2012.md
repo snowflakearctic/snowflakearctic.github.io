@@ -1,0 +1,1 @@
+[Advanced #TimeSeries and Forecasting at the University of Crete Summer 2012](https://qi.tc/qi/112443)
