@@ -1,0 +1,1 @@
+[AI Days - Informatics Institute](https://qi.tc/qi/119378)
