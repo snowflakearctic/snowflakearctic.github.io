@@ -1,0 +1,1 @@
+[AI and libraries series : the not-so distant future of AI personas   ANU School of Cybernetics](https://qi.tc/qi/112466)
