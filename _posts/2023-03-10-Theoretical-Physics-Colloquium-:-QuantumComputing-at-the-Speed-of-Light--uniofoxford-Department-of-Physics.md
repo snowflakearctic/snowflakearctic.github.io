@@ -1,0 +1,1 @@
+[Theoretical Physics Colloquium : #QuantumComputing at the Speed of Light   @uniofoxford Department of Physics](https://qi.tc/qi/111984)
