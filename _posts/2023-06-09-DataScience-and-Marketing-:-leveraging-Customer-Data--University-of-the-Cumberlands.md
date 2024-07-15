@@ -1,0 +1,1 @@
+[#DataScience and Marketing : leveraging Customer Data   University of the Cumberlands](https://qi.tc/qi/113925)
