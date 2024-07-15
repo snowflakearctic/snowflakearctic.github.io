@@ -1,0 +1,1 @@
+[U of M to lead new AI Institute focusing on climate-smart agriculture and forestry   University of Minnesota](https://qi.tc/qi/113415)
