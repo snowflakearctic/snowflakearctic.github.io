@@ -1,0 +1,1 @@
+[Does AI Challenge the Competitive Strategies of the Public and Private Sectors ? - SKEMA PUBLIKA ](https://qi.tc/qi/110224)
