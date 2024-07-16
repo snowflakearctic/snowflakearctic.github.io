@@ -1,0 +1,1 @@
+[Can machines invent things ? AI reveals the answer is 'yes ' - UNSW BusinessThink ](https://qi.tc/qi/110225)
