@@ -1,0 +1,1 @@
+[California agencies , @UCBerkeley , Stanford to study generative AI impacts   CDSS at @UCBerkeley](https://qi.tc/qi/117446)
