@@ -1,0 +1,1 @@
+[SmartPitch : Applied #MachineLearning for Professional Baseball Pitching Strategy](https://qi.tc/qi/110454)
