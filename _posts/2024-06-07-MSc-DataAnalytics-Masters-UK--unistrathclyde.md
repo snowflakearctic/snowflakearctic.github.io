@@ -1,0 +1,1 @@
+[MSc #DataAnalytics Masters UK   @unistrathclyde](https://qi.tc/qi/120340)
