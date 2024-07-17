@@ -1,0 +1,1 @@
+[RAIL KNUST Presents on Successful German-Africa AI Ethics Collaborations at the UNESCO Fostering #EthicalA I in Africa Workshop in Germany – RAIL   #ResponsibleA I Lab ](https://qi.tc/qi/7625)
