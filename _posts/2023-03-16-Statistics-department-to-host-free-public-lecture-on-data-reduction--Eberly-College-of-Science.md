@@ -1,0 +1,1 @@
+[#Statistics department to host free public lecture on data reduction   Eberly College of Science](https://qi.tc/qi/112115)
