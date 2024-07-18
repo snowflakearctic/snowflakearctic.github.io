@@ -1,0 +1,1 @@
+[Four exciting Proof of Concept projects awarded under the Highlight Call on #QuantumComputing - UKRI NQCC](https://qi.tc/qi/117055)
