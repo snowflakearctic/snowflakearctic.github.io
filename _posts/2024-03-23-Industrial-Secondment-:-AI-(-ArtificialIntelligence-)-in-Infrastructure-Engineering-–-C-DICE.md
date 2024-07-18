@@ -1,0 +1,1 @@
+[Industrial Secondment : AI ( #ArtificialIntelligence ) in Infrastructure Engineering – C-DICE](https://qi.tc/qi/119630)
