@@ -1,0 +1,1 @@
+[UOH-TA-0025 #Lecturer in the Centre of Excellence for #DataScience , #ArtificialIntelligence , and Modelling ( DAIM ) – Criminology - Jobs at the University of Hull](https://qi.tc/qi/112058)
