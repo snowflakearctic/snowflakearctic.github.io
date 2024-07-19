@@ -1,0 +1,1 @@
+[AI for Science Master’s – AIMS South Africa](https://qi.tc/qi/116869)
