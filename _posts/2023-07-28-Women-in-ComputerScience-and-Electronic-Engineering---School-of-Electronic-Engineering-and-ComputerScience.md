@@ -1,0 +1,1 @@
+[Women in #ComputerScience and Electronic Engineering - School of Electronic Engineering and #ComputerScience](https://qi.tc/qi/115427)
