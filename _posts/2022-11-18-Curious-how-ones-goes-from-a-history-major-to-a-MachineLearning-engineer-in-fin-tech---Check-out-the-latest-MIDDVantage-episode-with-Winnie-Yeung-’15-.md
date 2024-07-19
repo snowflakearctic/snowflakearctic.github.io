@@ -1,0 +1,1 @@
+[Curious how ones goes from a history major to a #MachineLearning engineer in fin tech ? Check out the latest MIDDVantage episode with Winnie Yeung ’15 ](https://qi.tc/qi/10865)
