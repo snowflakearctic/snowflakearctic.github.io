@@ -1,0 +1,1 @@
+[Elon University / Today at Elon / Chris Chen publishes research exploring algorithmic bias and trust in #ArtificialIntelligence](https://qi.tc/qi/113019)
