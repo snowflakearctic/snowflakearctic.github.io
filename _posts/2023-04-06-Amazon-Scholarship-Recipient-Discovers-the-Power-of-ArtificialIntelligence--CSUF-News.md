@@ -1,0 +1,1 @@
+[Amazon Scholarship Recipient Discovers the Power of #ArtificialIntelligence   CSUF News](https://qi.tc/qi/112540)
