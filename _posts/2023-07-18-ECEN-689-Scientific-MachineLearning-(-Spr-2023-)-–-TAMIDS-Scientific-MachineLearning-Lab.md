@@ -1,0 +1,1 @@
+[ECEN 689 Scientific #MachineLearning ( Spr 2023 ) – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/114886)
