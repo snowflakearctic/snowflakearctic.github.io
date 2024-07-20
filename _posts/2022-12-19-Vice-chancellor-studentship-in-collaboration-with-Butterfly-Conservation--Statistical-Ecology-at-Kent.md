@@ -1,0 +1,1 @@
+[Vice-chancellor studentship in collaboration with Butterfly Conservation   #Statistical Ecology at Kent](https://qi.tc/qi/110290)
