@@ -1,0 +1,1 @@
+[Ali Shojaie elected fellow of the Institute of Mathematical #Statistics   UW School of Public Health](https://qi.tc/qi/113077)
