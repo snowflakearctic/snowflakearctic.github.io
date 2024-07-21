@@ -1,0 +1,1 @@
+[UniSA and Optus appoint new Chair of Cyber Security and #DataScience - News and events - University of South Australia](https://qi.tc/qi/112056)
