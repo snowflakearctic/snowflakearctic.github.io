@@ -1,0 +1,1 @@
+[#ArtificialIntelligence MSc #Postgraduate taught Course   @Trent Uni](https://qi.tc/qi/112542)
