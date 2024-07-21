@@ -1,0 +1,1 @@
+[TAMIDS SciML Lab Seminar Series : Maziar Raissi : Hidden Physics Models – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117376)
