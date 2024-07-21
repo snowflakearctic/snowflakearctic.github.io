@@ -1,0 +1,1 @@
+[Moon Buddy , Mission Control and Math — The Link - The Magazine of @CarnegieMellon 's School of #ComputerScience](https://qi.tc/qi/114900)
