@@ -1,0 +1,1 @@
+[Data scientist charts the power , politics , and purpose of mapmaking](https://qi.tc/qi/113862)
