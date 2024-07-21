@@ -1,0 +1,1 @@
+[#DataScience course inaugurated at AIMIT - AIMIT ](https://qi.tc/qi/110245)
