@@ -1,0 +1,1 @@
+[Women and #ArtificialIntelligence – Hi ! PARIS Calls for Greater Diversity   HEC Paris](https://qi.tc/qi/110375)
