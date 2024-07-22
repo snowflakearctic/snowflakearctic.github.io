@@ -1,0 +1,1 @@
+[CUHK scholar jointly awarded first BOCHK Science and Technology Innovation Prize in #ArtificialIntelligence and robotics   CUHK Communications and Public Relations Office](https://qi.tc/qi/110317)
