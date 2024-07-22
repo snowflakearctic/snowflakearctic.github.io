@@ -1,0 +1,1 @@
+[New Course : DS 3891 Special Topics : Intro to Generative AI   Undergraduate #DataScience   @Vanderbilt U](https://qi.tc/qi/116651)
