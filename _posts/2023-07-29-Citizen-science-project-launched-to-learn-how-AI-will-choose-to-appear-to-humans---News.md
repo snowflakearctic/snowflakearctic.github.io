@@ -1,0 +1,1 @@
+[Citizen science project launched to learn how AI will choose to appear to humans - News](https://qi.tc/qi/115524)
