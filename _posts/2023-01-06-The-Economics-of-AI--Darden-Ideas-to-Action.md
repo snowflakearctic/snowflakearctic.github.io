@@ -1,0 +1,1 @@
+[The Economics of AI   Darden Ideas to Action](https://qi.tc/qi/110553)
