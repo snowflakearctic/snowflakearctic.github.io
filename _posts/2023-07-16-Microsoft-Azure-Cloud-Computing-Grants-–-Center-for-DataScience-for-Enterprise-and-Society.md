@@ -1,0 +1,1 @@
+[Microsoft #Azure Cloud Computing Grants – Center for #DataScience for Enterprise and Society](https://qi.tc/qi/114678)
