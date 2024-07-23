@@ -1,0 +1,1 @@
+[( PDF) Recurrent #NeuralNetwork with Human Simulator Based Virtual Reality   Prof. Dr. Yousif Al Mashhadany - Academia .edu](https://qi.tc/qi/115346)
