@@ -1,0 +1,1 @@
+[ChatGPT : Did Big Tech Set Up the World for an AI Bias Disaster ? - HBS Working Knowledge](https://qi.tc/qi/111906)
