@@ -1,0 +1,1 @@
+[MBA Admission   BML Munjal University](https://qi.tc/qi/118237)
