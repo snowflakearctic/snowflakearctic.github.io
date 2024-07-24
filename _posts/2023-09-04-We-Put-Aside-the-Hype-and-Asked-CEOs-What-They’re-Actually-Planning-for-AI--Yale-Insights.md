@@ -1,0 +1,1 @@
+[We Put Aside the Hype and Asked CEOs What They’re Actually Planning for AI   Yale Insights](https://qi.tc/qi/117026)
