@@ -1,0 +1,1 @@
+[Rethinking how to deal with contemporary AI : Ethics is not a ballast but a need   @covcampus](https://qi.tc/qi/113128)
