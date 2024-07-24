@@ -1,0 +1,1 @@
+[CORE-GPT : Combining Open Access research and AI for credible , trustworthy question answering – CORE](https://qi.tc/qi/112155)
