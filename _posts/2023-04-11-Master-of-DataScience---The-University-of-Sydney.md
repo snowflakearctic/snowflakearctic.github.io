@@ -1,0 +1,1 @@
+[Master of #DataScience - The University of Sydney](https://qi.tc/qi/112617)
