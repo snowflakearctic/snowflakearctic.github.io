@@ -1,0 +1,1 @@
+[AI enables strategic hydropower planning across Amazon basin   Cornell Chronicle](https://qi.tc/qi/115139)
