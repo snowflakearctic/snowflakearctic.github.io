@@ -1,0 +1,1 @@
+[Historical #TimeSeries of apprenticeships and traineeships in Australia from 1963 to 2022](https://qi.tc/qi/110840)
