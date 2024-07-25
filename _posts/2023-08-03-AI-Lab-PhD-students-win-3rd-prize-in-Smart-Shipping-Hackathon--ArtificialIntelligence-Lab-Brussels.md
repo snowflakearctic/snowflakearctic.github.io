@@ -1,0 +1,1 @@
+[AI Lab PhD students win 3rd prize in Smart Shipping Hackathon   #ArtificialIntelligence Lab Brussels](https://qi.tc/qi/116046)
