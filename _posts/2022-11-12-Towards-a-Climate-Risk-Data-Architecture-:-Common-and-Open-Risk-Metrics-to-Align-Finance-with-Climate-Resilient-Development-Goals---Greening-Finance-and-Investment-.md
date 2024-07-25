@@ -1,0 +1,1 @@
+[Towards a Climate Risk Data Architecture : Common and Open Risk Metrics to Align Finance with Climate Resilient Development Goals - Greening Finance and Investment ](https://qi.tc/qi/8302)
