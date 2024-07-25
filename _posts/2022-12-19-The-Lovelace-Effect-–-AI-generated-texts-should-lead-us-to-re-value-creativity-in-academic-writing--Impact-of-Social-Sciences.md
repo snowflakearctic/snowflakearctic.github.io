@@ -1,0 +1,1 @@
+[The Lovelace Effect – AI generated texts should lead us to re-value creativity in academic writing   Impact of Social Sciences](https://qi.tc/qi/110292)
