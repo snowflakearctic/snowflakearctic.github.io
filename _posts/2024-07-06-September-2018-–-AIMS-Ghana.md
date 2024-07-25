@@ -1,0 +1,1 @@
+[September 2018 – AIMS Ghana](https://qi.tc/qi/120547)
