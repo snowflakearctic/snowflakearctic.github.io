@@ -1,0 +1,1 @@
+[H&M Bets Big on #MachineLearning to Survive - Technology and Operations Management](https://qi.tc/qi/113897)
