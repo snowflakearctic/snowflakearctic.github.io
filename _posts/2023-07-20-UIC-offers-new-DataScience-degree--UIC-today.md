@@ -1,0 +1,1 @@
+[UIC offers new #DataScience degree   UIC today](https://qi.tc/qi/115122)
