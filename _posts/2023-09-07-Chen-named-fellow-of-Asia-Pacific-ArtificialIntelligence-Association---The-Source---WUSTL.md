@@ -1,0 +1,1 @@
+[Chen named fellow of Asia-Pacific #ArtificialIntelligence Association - The Source - @WUSTL](https://qi.tc/qi/117130)
