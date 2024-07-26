@@ -1,0 +1,1 @@
+[Learner in Afghanistan reaches beyond barriers to pursue career in #DataScience   @MIT News   @MIT](https://qi.tc/qi/112910)
