@@ -1,0 +1,1 @@
+[The danger of anthropomorphic language in robotic AI systems   Brookings](https://qi.tc/qi/118373)
