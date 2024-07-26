@@ -1,0 +1,1 @@
+[Addressing challenges for kinetics predictions via #NeuralNetwork potentials – ICReDD : Institute for Chemical Reaction Design and Discovery , Hokkaido University ( WPI-ICReDD )](https://qi.tc/qi/113939)
