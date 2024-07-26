@@ -1,0 +1,1 @@
+[The #DeepLearning Revolution ](https://qi.tc/qi/8679)
