@@ -1,0 +1,1 @@
+[August 2020 - Computer and Information science](https://qi.tc/qi/117062)
