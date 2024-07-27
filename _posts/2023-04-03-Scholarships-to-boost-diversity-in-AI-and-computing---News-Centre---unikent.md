@@ -1,0 +1,1 @@
+[Scholarships to boost diversity in AI and computing - News Centre - @unikent](https://qi.tc/qi/112446)
