@@ -1,0 +1,1 @@
+[( PDF) DOMAIN SPECIFIC CBIR FOR HIGHLY TEXTURED IMAGES   #ComputerScience & Engineering : An International Journal ( CSEIJ) - Academia .edu ](https://qi.tc/qi/8014)
