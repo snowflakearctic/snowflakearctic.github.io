@@ -1,0 +1,1 @@
+[Edinburgh Innovations   AI in heart attack diagnosis could reduce …](https://qi.tc/qi/113330)
