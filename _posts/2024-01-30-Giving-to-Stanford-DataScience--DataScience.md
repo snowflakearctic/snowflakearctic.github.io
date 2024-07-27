@@ -1,0 +1,1 @@
+[Giving to Stanford #DataScience   #DataScience](https://qi.tc/qi/119094)
