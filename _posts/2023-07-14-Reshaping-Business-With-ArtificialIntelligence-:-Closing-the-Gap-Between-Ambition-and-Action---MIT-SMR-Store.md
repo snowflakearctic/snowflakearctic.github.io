@@ -1,0 +1,1 @@
+[Reshaping Business With #ArtificialIntelligence : Closing the Gap Between Ambition and Action - @MIT SMR Store](https://qi.tc/qi/114559)
