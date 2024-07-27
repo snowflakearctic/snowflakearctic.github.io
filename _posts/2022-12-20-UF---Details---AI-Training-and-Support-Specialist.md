@@ -1,0 +1,1 @@
+[@UF - Details - AI Training and Support Specialist](https://qi.tc/qi/110308)
