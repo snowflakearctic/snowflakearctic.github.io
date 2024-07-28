@@ -1,0 +1,1 @@
+[Concordia College - Moorhead Applicant Site   Assistant Professor of #DataScience](https://qi.tc/qi/111129)
