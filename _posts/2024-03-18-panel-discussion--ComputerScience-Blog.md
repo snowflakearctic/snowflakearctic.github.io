@@ -1,0 +1,1 @@
+[panel discussion   #ComputerScience Blog](https://qi.tc/qi/119543)
