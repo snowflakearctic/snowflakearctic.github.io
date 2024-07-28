@@ -1,0 +1,1 @@
+[About   Histories of #ArtificialIntelligence : A Genealogy of Power](https://qi.tc/qi/119465)
