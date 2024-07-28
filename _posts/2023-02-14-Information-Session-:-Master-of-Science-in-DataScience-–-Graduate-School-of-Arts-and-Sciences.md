@@ -1,0 +1,1 @@
+[Information Session : Master of Science in #DataScience – Graduate School of Arts and Sciences](https://qi.tc/qi/111388)
