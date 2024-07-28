@@ -1,0 +1,1 @@
+[Lecturer/Senior #Lecturer in #DataScience at @Bristol Uni](https://qi.tc/qi/111713)
