@@ -1,0 +1,1 @@
+[UW-Madison programming teams take ICPC by storm – for the 20th year in a row – Computer Sciences – @UWMadison](https://qi.tc/qi/115163)
