@@ -1,0 +1,1 @@
+[Mason physicist’s research collaboration explores never before layered quantum materials for breakthrough in computing memory and processing capabilities   GMU College of Science ](https://qi.tc/qi/105935)
