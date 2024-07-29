@@ -1,0 +1,1 @@
+[#ArtificialIntelligence : Aim policies at ‘hardware ’ to ensure AI safety , say experts - Bennett Institute for Public Policy](https://qi.tc/qi/119617)
