@@ -1,0 +1,1 @@
+[November 2022 – AIMS Ghana](https://qi.tc/qi/120591)
