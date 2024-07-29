@@ -1,0 +1,1 @@
+[2022 Spring Series - Center for #ArtificialIntelligence Innovation](https://qi.tc/qi/114490)
