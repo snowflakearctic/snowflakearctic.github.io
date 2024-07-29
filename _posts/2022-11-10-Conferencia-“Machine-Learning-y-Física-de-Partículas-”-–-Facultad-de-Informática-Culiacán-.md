@@ -1,0 +1,1 @@
+[Conferencia “Machine Learning y Física de Partículas ” – Facultad de Informática Culiacán ](https://qi.tc/qi/7959)
