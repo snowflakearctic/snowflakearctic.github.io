@@ -1,0 +1,1 @@
+[Class of 2027 Regular Decision Summary #Statistics   The Vandy Admissions Blog   @Vanderbilt U](https://qi.tc/qi/112361)
