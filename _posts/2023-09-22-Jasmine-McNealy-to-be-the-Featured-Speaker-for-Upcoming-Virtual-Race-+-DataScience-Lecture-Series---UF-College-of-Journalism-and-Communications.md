@@ -1,0 +1,1 @@
+[Jasmine McNealy to be the Featured Speaker for Upcoming Virtual Race + #DataScience Lecture Series - UF College of Journalism and Communications](https://qi.tc/qi/117637)
