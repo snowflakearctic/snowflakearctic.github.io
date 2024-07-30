@@ -1,0 +1,1 @@
+[Participating at a panel at the Digital Governance at the Age of AI Conference at Bar Ilan – Interacting with Technology Lab](https://qi.tc/qi/113190)
