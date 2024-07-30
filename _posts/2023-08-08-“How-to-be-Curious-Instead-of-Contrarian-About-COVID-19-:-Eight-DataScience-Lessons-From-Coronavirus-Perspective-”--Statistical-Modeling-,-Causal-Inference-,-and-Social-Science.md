@@ -1,0 +1,1 @@
+[“How to be Curious Instead of Contrarian About COVID-19 : Eight #DataScience Lessons From Coronavirus Perspective ”   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/116261)
