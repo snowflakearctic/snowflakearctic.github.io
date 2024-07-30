@@ -1,0 +1,1 @@
+[( PDF) NEURAL NETWORKS QUESTION BANK   Satya vardi - Academia .edu](https://qi.tc/qi/115356)
