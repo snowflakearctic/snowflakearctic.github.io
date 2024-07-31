@@ -1,0 +1,1 @@
+[Tokyo Tech and HPE collaborate to build the next generation TSUBAME4.0 supercomputer for #ArtificialIntelligence , scientific research , and innovation   Tokyo Tech News   Tokyo Institute of Technology](https://qi.tc/qi/113642)
