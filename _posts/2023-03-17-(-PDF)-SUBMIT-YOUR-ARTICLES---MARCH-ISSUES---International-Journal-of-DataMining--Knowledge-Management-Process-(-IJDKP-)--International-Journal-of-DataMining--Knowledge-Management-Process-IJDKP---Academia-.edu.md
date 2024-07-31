@@ -1,0 +1,1 @@
+[( PDF) SUBMIT YOUR ARTICLES - MARCH ISSUES - International Journal of #DataMining & Knowledge Management Process ( IJDKP )   International Journal of #DataMining & Knowledge Management Process IJDKP - Academia .edu](https://qi.tc/qi/112126)
