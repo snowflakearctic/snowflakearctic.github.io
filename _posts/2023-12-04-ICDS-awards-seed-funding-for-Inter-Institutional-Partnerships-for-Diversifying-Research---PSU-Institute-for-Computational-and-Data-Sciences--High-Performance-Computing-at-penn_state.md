@@ -1,0 +1,1 @@
+[ICDS awards seed funding for Inter-Institutional Partnerships for Diversifying #Research - PSU Institute for Computational and Data Sciences   High Performance Computing at @penn_state](https://qi.tc/qi/118589)
