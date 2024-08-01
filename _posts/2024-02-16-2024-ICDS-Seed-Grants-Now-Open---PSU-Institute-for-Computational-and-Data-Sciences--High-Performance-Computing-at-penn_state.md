@@ -1,0 +1,1 @@
+[2024 ICDS Seed Grants Now Open - PSU Institute for Computational and Data Sciences   High Performance Computing at @penn_state](https://qi.tc/qi/119236)
