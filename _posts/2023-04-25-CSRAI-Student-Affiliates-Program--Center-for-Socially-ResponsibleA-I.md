@@ -1,0 +1,1 @@
+[CSRAI Student Affiliates Program   Center for Socially #ResponsibleA I](https://qi.tc/qi/112929)
