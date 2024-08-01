@@ -1,0 +1,1 @@
+[IGT , URI launch computer science scholarship program for women – College of Arts and Sciences ](https://qi.tc/qi/8838)
