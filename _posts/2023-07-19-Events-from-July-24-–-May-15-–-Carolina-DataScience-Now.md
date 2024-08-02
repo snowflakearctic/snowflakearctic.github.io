@@ -1,0 +1,1 @@
+[Events from July 24 – May 15 – Carolina #DataScience Now](https://qi.tc/qi/115011)
