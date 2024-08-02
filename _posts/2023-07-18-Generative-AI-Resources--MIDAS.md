@@ -1,0 +1,1 @@
+[Generative AI Resources   MIDAS](https://qi.tc/qi/114848)
