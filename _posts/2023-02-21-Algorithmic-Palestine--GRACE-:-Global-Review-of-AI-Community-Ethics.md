@@ -1,0 +1,1 @@
+[Algorithmic Palestine   GRACE : Global Review of AI Community Ethics](https://qi.tc/qi/111565)
