@@ -1,0 +1,1 @@
+[New fellowship explores #ArtificialIntelligence and society   @ASU News](https://qi.tc/qi/112492)
