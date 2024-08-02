@@ -1,0 +1,1 @@
+[#Research brief : Evaluating use of new AI technology in diagnosing COVID-19   Medical School - University of Minnesota ](https://qi.tc/qi/9585)
