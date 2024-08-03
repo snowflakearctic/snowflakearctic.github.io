@@ -1,0 +1,1 @@
+[Industry Brief   Sustainability and AI   Stanford HAI](https://qi.tc/qi/112044)
