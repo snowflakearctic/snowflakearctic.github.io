@@ -1,0 +1,1 @@
+[Advanced Care Planning for Hospitalized Patients Following Clinician Notification of Patient Mortality by a #MachineLearning Algorithm   Hospital Medicine Virtual Journal Club   @WUSTL](https://qi.tc/qi/112811)
