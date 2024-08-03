@@ -1,0 +1,1 @@
+[Using AI to make medical records more accurate and help hospitals plan services - HDR UK](https://qi.tc/qi/118098)
