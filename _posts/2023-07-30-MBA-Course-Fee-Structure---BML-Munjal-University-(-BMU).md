@@ -1,0 +1,1 @@
+[MBA Course Fee Structure - BML Munjal University ( BMU)](https://qi.tc/qi/115932)
