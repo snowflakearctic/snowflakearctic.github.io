@@ -1,0 +1,1 @@
+[AI Technologies for Digital Procurement - SIPMM Publications](https://qi.tc/qi/119452)
