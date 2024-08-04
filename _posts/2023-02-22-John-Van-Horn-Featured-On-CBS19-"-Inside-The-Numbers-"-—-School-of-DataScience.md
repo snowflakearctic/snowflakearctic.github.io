@@ -1,0 +1,1 @@
+[John Van Horn Featured On CBS19 " Inside The Numbers " — School of #DataScience](https://qi.tc/qi/111596)
