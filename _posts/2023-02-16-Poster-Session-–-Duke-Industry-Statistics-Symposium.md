@@ -1,0 +1,1 @@
+[Poster Session – Duke Industry #Statistics Symposium](https://qi.tc/qi/111442)
