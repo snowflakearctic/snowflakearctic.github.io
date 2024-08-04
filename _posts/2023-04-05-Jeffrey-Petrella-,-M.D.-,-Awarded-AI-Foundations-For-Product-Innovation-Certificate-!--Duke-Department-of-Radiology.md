@@ -1,0 +1,1 @@
+[Jeffrey Petrella , M.D. , Awarded AI Foundations For Product Innovation Certificate !   Duke Department of Radiology](https://qi.tc/qi/112524)
