@@ -1,0 +1,1 @@
+[November 10 , 2022 Recap : Navigating Politics and the Law - Carolina #DataScience Now](https://qi.tc/qi/117480)
