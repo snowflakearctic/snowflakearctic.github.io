@@ -1,0 +1,1 @@
+[( 日本語 ) 企業/社会人の方   Center for Innovative #Research and Education in #DataScience](https://qi.tc/qi/119659)
