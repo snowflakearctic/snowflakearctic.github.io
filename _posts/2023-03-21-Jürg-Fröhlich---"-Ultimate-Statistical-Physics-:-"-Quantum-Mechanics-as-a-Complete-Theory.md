@@ -1,0 +1,1 @@
+[Jürg Fröhlich - " Ultimate #Statistical Physics : " Quantum Mechanics as a Complete Theory](https://qi.tc/qi/112186)
