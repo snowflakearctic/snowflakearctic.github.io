@@ -1,0 +1,1 @@
+[Lecture 2 : Overview of Clinical Care   #MachineLearning for Healthcare   Electrical Engineering and #ComputerScience   @MIT OpenCourseWare](https://qi.tc/qi/116189)
