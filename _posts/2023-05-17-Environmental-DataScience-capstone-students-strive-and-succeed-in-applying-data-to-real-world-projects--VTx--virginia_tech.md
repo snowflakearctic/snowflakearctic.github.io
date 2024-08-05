@@ -1,0 +1,1 @@
+[Environmental #DataScience capstone students strive and succeed in applying data to real-world projects   VTx   @virginia_tech](https://qi.tc/qi/113431)
