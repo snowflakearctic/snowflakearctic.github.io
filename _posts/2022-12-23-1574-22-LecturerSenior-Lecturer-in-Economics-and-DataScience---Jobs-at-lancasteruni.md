@@ -1,0 +1,1 @@
+[1574-22 Lecturer/Senior #Lecturer in Economics and #DataScience - Jobs at @lancasteruni](https://qi.tc/qi/110400)
