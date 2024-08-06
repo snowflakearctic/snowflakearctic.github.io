@@ -1,0 +1,1 @@
+[Meet the Faculty of the UW Master of Science in #DataScience   UW Extended Campus](https://qi.tc/qi/120129)
