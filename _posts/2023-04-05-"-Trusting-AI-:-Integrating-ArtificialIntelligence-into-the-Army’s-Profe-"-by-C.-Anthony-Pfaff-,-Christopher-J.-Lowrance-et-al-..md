@@ -1,0 +1,1 @@
+[" Trusting AI : Integrating #ArtificialIntelligence into the Army’s Profe " by C. Anthony Pfaff , Christopher J. Lowrance et al .](https://qi.tc/qi/112538)
