@@ -1,0 +1,1 @@
+[C2 – Real World Evidence Framework in Clinical Development – Duke Industry #Statistics Symposium](https://qi.tc/qi/112304)
