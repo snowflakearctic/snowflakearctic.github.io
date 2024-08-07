@@ -1,0 +1,1 @@
+[MSc project with industry - School of Electronic Engineering and #ComputerScience](https://qi.tc/qi/115591)
