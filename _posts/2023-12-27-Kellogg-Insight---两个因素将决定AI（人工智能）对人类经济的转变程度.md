@@ -1,0 +1,1 @@
+[Kellogg Insight - 两个因素将决定AI（人工智能）对人类经济的转变程度](https://qi.tc/qi/118798)
