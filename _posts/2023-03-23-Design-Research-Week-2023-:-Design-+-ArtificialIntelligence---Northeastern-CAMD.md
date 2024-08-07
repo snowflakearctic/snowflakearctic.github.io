@@ -1,0 +1,1 @@
+[Design #Research Week 2023 : Design + #ArtificialIntelligence - Northeastern CAMD](https://qi.tc/qi/112240)
