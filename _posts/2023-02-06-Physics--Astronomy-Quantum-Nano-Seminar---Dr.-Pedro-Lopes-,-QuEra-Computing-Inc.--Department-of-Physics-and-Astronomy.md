@@ -1,0 +1,1 @@
+[Physics & Astronomy Quantum Nano Seminar - Dr. Pedro Lopes , QuEra Computing Inc.   Department of Physics and Astronomy](https://qi.tc/qi/111193)
