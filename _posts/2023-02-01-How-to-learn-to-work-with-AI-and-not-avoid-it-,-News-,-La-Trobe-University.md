@@ -1,0 +1,1 @@
+[How to learn to work with AI and not avoid it , News , La Trobe University](https://qi.tc/qi/111081)
