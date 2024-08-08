@@ -1,0 +1,1 @@
+[Ordinal Logistic #Regression   R #DataAnalysis Examples ](https://qi.tc/qi/110169)
