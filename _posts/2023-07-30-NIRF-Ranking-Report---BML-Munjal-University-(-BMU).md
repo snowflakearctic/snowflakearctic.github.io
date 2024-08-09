@@ -1,0 +1,1 @@
+[NIRF Ranking Report - BML Munjal University ( BMU)](https://qi.tc/qi/115637)
