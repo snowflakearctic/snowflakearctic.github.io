@@ -1,0 +1,1 @@
+[A machine learning-based framework for forecasting sales of new products with short life cycles using deep #NeuralNetwork - @UCL Discovery ](https://qi.tc/qi/110269)
