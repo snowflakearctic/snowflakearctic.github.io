@@ -1,0 +1,1 @@
+[From ChatGPT to HackGPT : Meeting the #Cybersecurity Threat of Generative AI](https://qi.tc/qi/112773)
