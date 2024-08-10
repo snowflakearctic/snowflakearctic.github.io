@@ -1,0 +1,1 @@
+[Erasmus Mundus joint Master in #ArtificialIntelligence ( EMAI ) ( UPF )](https://qi.tc/qi/110738)
