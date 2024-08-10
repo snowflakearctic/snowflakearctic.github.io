@@ -1,0 +1,1 @@
+[The Ethics & Regulation of Generative AI   Center for Governance and Markets   @PittTweet](https://qi.tc/qi/111626)
