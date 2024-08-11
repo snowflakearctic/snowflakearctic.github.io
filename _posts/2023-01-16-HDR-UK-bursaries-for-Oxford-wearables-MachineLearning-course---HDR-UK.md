@@ -1,0 +1,1 @@
+[HDR UK bursaries for Oxford wearables #MachineLearning course - HDR UK](https://qi.tc/qi/110739)
