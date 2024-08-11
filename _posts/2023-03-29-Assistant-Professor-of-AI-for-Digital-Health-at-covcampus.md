@@ -1,0 +1,1 @@
+[Assistant Professor of AI for Digital Health at @covcampus](https://qi.tc/qi/112345)
