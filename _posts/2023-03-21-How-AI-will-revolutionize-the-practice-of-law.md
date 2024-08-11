@@ -1,0 +1,1 @@
+[How AI will revolutionize the practice of law](https://qi.tc/qi/112174)
