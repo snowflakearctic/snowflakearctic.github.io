@@ -1,0 +1,1 @@
+[Trustworthy #ArtificialIntelligence for Environmental Science Summer School 2021   Computational and Information Systems Lab](https://qi.tc/qi/116123)
