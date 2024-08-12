@@ -1,0 +1,1 @@
+[CSU hosts largest aerospace symposium in AIAA Rocky Mountain section history - Walter Scott , Jr. College of Engineering](https://qi.tc/qi/120290)
