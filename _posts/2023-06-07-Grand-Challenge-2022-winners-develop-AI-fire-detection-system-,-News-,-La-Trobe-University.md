@@ -1,0 +1,1 @@
+[Grand Challenge 2022 winners develop AI fire detection system , News , La Trobe University](https://qi.tc/qi/113876)
