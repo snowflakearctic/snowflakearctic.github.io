@@ -1,0 +1,1 @@
+[How Can We Avoid Excessive Usage of AI in Art Creation ? – AIrtist Project](https://qi.tc/qi/111662)
