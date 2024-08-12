@@ -1,0 +1,1 @@
+[Vice-Chancellor and fellow academics share insights into AI   Alumni   @lborouniversity](https://qi.tc/qi/113866)
