@@ -1,0 +1,1 @@
+[BS #ArtificialIntelligence ( BS AI ) - Information Technology University](https://qi.tc/qi/120484)
