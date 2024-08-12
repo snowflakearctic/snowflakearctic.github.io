@@ -1,0 +1,1 @@
+[Clever talk : what do AI 'chatbots ' like ChatGPT mean for the hospitality industry ? - Les Roches](https://qi.tc/qi/111892)
