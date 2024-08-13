@@ -1,0 +1,1 @@
+[UCSD PHYS 139/239 : #MachineLearning in Physics — UCSD PHYS 139/239](https://qi.tc/qi/112392)
