@@ -1,0 +1,1 @@
+[CERT Information Security Partner Opportunity   #SoftwareEngineering Institute](https://qi.tc/qi/118666)
