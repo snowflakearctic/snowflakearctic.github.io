@@ -1,0 +1,1 @@
+[AI-assisted #ComputerVision research aims to improve accessibility for deaf , hard of hearing   @georgemasonu](https://qi.tc/qi/111775)
