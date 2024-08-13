@@ -1,0 +1,1 @@
+[Latest Publications from RED² : FLASH Radiotherapy and #MachineLearning Reference for Computational Phantom Dosimetry – Radiological Engineering , Detection , and Dosimetry Laboratory ( RED² )](https://qi.tc/qi/111928)
