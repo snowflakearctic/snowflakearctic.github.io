@@ -1,0 +1,1 @@
+[Critical Analysis of “Responsible AI #AIforAll : Approach Document for India ”   IDEALS](https://qi.tc/qi/116355)
