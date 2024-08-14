@@ -1,0 +1,1 @@
+[Ernst receives second George R. Brown Award for Superior Teaching   Department of #Statistics   @Rice University](https://qi.tc/qi/112467)
