@@ -1,0 +1,1 @@
+[SOP-KNIME Digital Health Hackathon - Digital Health - Virginia Commonwealth University](https://qi.tc/qi/113194)
