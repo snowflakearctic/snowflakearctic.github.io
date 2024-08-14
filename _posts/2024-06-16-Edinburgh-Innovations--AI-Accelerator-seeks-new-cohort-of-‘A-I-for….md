@@ -1,0 +1,1 @@
+[Edinburgh Innovations   AI Accelerator seeks new cohort of ‘A I for…](https://qi.tc/qi/120402)
