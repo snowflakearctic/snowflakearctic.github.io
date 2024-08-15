@@ -1,0 +1,1 @@
+[Is ‘Generative’ AI the Way of the Future ?](https://qi.tc/qi/112834)
