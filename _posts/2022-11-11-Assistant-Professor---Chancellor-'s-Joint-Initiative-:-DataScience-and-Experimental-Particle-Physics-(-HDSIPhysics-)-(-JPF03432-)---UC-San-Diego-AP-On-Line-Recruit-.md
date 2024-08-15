@@ -1,0 +1,1 @@
+[Assistant Professor - Chancellor 's Joint Initiative : #DataScience and Experimental Particle Physics ( HDSI/Physics ) ( JPF03432 ) - UC San Diego AP On-Line Recruit ](https://qi.tc/qi/7974)
