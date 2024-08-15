@@ -1,0 +1,1 @@
+[Bachelor of Science in #ComputerScience with Concentration in #SoftwareEngineering - South College](https://qi.tc/qi/120451)
