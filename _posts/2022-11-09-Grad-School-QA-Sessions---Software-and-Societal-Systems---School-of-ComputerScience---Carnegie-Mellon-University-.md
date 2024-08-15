@@ -1,0 +1,1 @@
+[Grad School Q&A Sessions - Software and Societal Systems - School of #ComputerScience - Carnegie Mellon University ](https://qi.tc/qi/7526)
