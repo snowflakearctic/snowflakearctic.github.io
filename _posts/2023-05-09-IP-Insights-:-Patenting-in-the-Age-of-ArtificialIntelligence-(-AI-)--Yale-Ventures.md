@@ -1,0 +1,1 @@
+[IP Insights : Patenting in the Age of #ArtificialIntelligence ( AI )   Yale Ventures](https://qi.tc/qi/113231)
