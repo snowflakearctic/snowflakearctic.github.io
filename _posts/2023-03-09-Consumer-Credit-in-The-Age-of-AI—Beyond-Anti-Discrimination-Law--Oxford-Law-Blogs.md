@@ -1,0 +1,1 @@
+[Consumer Credit in The Age of AI—Beyond Anti-Discrimination Law   Oxford Law Blogs](https://qi.tc/qi/111948)
