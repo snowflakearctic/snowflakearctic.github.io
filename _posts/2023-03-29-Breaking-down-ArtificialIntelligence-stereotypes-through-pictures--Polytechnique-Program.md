@@ -1,0 +1,1 @@
+[Breaking down #ArtificialIntelligence stereotypes through pictures   Polytechnique Program](https://qi.tc/qi/112351)
