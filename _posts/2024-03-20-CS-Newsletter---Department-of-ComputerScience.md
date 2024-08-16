@@ -1,0 +1,1 @@
+[CS Newsletter - Department of #ComputerScience](https://qi.tc/qi/119569)
