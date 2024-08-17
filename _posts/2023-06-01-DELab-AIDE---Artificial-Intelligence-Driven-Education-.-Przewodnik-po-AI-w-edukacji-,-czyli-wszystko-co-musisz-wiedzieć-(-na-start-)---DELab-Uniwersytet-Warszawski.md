@@ -1,0 +1,1 @@
+[DELab AIDE - Artificial Intelligence-Driven Education . Przewodnik po AI w edukacji , czyli wszystko co musisz wiedzieć ( na start ) - DELab Uniwersytet Warszawski](https://qi.tc/qi/113744)
