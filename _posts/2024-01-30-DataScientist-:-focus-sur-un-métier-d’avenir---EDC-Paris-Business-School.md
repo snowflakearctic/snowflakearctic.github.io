@@ -1,0 +1,1 @@
+[#DataScientist : focus sur un métier d’avenir - EDC Paris Business School](https://qi.tc/qi/119089)
