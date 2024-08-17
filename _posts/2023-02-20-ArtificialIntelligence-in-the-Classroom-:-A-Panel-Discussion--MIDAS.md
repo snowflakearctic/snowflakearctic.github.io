@@ -1,0 +1,1 @@
+[#ArtificialIntelligence in the Classroom : A Panel Discussion   MIDAS](https://qi.tc/qi/111533)
