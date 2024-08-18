@@ -1,0 +1,1 @@
+[Loughborough announces new scholarships for its AI and #DataScience programmes to increase diversity   News and events   @lborouniversity](https://qi.tc/qi/112569)
