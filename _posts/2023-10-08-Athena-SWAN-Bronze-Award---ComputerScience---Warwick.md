@@ -1,0 +1,1 @@
+[Athena SWAN Bronze Award - #ComputerScience - Warwick](https://qi.tc/qi/117982)
