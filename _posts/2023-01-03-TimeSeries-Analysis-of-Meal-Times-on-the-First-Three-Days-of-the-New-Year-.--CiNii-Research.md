@@ -1,0 +1,1 @@
+[#TimeSeries Analysis of Meal Times on the First Three Days of the New Year .   CiNii #Research](https://qi.tc/qi/110480)
