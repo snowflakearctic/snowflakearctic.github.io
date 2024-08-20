@@ -1,0 +1,1 @@
+[Rice University- Master of #DataScience On-Campus Program Virtual Information Session](https://qi.tc/qi/116639)
