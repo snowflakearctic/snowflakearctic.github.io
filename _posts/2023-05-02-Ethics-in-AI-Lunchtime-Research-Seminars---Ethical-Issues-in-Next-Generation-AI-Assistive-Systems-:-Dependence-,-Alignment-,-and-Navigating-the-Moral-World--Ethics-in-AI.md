@@ -1,1 +1,0 @@
-[Ethics in AI Lunchtime #Research Seminars - Ethical Issues in Next-Generation AI Assistive Systems : Dependence , Alignment , and Navigating the Moral World   Ethics in AI](https://qi.tc/qi/113068)
