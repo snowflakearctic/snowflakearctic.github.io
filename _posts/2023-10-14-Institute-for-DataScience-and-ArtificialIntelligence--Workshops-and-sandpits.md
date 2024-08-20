@@ -1,0 +1,1 @@
+[Institute for #DataScience and #ArtificialIntelligence   Workshops and sandpits](https://qi.tc/qi/118145)
