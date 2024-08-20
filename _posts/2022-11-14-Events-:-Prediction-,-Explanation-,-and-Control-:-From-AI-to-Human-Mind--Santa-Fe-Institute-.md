@@ -1,0 +1,1 @@
+[Events : Prediction , Explanation , and Control : From AI to Human Mind   Santa Fe Institute ](https://qi.tc/qi/8829)
