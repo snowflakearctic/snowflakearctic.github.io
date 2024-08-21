@@ -1,0 +1,1 @@
+[( PDF) A general backpropagation algorithm for feedforward #NeuralNetwork learning   Mehmet Onder Efe - Academia .edu](https://qi.tc/qi/120666)
