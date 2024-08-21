@@ -1,0 +1,1 @@
+[Acclaimed mathematician awarded provisional AI patent](https://qi.tc/qi/120467)
