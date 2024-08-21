@@ -1,0 +1,1 @@
+[White Paper on ‘Getting companies on Board with responsible Artificial intelligence ’ - METALAB](https://qi.tc/qi/112093)
