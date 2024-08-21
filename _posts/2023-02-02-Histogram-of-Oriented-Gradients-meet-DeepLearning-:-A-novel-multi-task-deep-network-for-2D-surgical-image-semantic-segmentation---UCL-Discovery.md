@@ -1,0 +1,1 @@
+[Histogram of Oriented Gradients meet #DeepLearning : A novel multi-task deep network for 2D surgical image semantic segmentation - @UCL Discovery](https://qi.tc/qi/111131)
