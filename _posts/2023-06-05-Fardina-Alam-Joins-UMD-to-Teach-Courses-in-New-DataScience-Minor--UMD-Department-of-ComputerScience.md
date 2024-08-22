@@ -1,0 +1,1 @@
+[Fardina Alam Joins UMD to Teach Courses in New #DataScience Minor   UMD Department of #ComputerScience](https://qi.tc/qi/113827)
