@@ -1,0 +1,1 @@
+[Lender Center Student Fellows Researching Social Justice Implications of #ArtificialIntelligence Weaponry   Syracuse University News](https://qi.tc/qi/111518)
