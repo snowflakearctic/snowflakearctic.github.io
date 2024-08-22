@@ -1,0 +1,1 @@
+[For Students   Robert @BoschGlobal Center for #DataScience and #ArtificialIntelligence](https://qi.tc/qi/117635)
