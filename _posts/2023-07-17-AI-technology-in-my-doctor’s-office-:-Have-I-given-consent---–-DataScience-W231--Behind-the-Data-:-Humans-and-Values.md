@@ -1,0 +1,1 @@
+[AI technology in my doctor’s office : Have I given consent ? – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/114821)
