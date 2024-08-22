@@ -1,0 +1,1 @@
+[Professor Chris Kim to lead NSF-, DARPA-funded $ 8M quantum-inspired computing efforts   College   College of Science and Engineering](https://qi.tc/qi/110765)
