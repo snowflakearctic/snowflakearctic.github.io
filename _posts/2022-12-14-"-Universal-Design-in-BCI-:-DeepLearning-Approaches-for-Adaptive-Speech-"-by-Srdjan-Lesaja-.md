@@ -1,0 +1,1 @@
+[" Universal Design in BCI : #DeepLearning Approaches for Adaptive Speech " by Srdjan Lesaja ](https://qi.tc/qi/110226)
