@@ -1,0 +1,1 @@
+[R Essentials : A Rapid Course for #DataAnalysis , Visualisation and Communication Professional ; Short Course   @Trent Uni](https://qi.tc/qi/116225)
