@@ -1,0 +1,1 @@
+[How to perfect your prompt writing for ChatGPT , Midjourney and other AI generators   Sydney Business Insights ( SBI )](https://qi.tc/qi/112848)
