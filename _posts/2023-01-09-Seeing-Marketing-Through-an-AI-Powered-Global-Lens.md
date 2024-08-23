@@ -1,0 +1,1 @@
+[Seeing Marketing Through an AI-Powered Global Lens](https://qi.tc/qi/110590)
