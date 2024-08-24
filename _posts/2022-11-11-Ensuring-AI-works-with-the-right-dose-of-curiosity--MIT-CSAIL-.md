@@ -1,0 +1,1 @@
+[Ensuring AI works with the right dose of curiosity   @MIT CSAIL ](https://qi.tc/qi/8142)
