@@ -1,0 +1,1 @@
+[Managing Director , AI #Research Center - Morningside , #NewYork , United States](https://qi.tc/qi/113091)
