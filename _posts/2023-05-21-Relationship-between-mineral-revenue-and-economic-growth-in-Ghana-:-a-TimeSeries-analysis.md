@@ -1,0 +1,1 @@
+[Relationship between mineral revenue and economic growth in Ghana : a #TimeSeries analysis](https://qi.tc/qi/113512)
