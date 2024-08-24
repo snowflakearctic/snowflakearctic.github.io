@@ -1,0 +1,1 @@
+[Harvard Academic Positions   #Lecturer on #Statistics](https://qi.tc/qi/110674)
