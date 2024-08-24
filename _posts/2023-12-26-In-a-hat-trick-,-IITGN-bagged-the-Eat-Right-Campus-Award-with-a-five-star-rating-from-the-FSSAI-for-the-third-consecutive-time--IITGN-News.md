@@ -1,0 +1,1 @@
+[In a hat-trick , IITGN bagged the Eat Right Campus Award with a five-star rating from the FSSAI for the third consecutive time   IITGN News](https://qi.tc/qi/118780)
