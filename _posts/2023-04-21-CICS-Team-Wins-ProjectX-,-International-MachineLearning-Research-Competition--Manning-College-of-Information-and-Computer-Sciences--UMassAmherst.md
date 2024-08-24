@@ -1,0 +1,1 @@
+[CICS Team Wins ProjectX , International #MachineLearning #Research Competition   Manning College of Information and Computer Sciences   @UMassAmherst](https://qi.tc/qi/112871)
