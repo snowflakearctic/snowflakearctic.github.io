@@ -1,0 +1,1 @@
+[Greenwich Academic Literature Archive - Intelligent seating system based on IoT and #MachineLearning](https://qi.tc/qi/110789)
