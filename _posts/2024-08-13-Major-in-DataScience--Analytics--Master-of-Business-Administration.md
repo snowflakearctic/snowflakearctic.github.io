@@ -1,0 +1,1 @@
+[Major in #DataScience & Analytics   Master of Business Administration](https://qi.tc/qi/120797)
