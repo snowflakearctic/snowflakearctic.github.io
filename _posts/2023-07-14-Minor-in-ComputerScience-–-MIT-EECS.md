@@ -1,0 +1,1 @@
+[Minor in #ComputerScience – @MIT EECS](https://qi.tc/qi/114481)
