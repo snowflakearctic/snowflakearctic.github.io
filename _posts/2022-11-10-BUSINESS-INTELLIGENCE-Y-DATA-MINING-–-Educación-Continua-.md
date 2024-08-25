@@ -1,0 +1,1 @@
+[BUSINESS INTELLIGENCE Y DATA MINING – Educación Continua ](https://qi.tc/qi/7938)
