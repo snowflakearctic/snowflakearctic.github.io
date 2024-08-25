@@ -1,0 +1,1 @@
+[AI used to predict future flares of ulcerative colitis activity - @unibirmingham](https://qi.tc/qi/111802)
