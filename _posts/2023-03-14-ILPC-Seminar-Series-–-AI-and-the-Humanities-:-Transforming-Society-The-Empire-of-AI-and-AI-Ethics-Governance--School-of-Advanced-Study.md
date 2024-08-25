@@ -1,0 +1,1 @@
+[ILPC Seminar Series – AI and the Humanities : Transforming Society The Empire of AI and AI Ethics Governance   School of Advanced Study](https://qi.tc/qi/112065)
