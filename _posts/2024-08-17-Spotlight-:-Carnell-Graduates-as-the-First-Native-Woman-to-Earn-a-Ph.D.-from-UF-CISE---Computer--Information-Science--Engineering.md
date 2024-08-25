@@ -1,0 +1,1 @@
+[Spotlight : Carnell Graduates as the First Native Woman to Earn a Ph.D. from UF CISE - Computer & Information Science & Engineering](https://qi.tc/qi/120848)
