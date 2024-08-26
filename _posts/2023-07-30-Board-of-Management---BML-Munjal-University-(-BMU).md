@@ -1,0 +1,1 @@
+[Board of Management - BML Munjal University ( BMU)](https://qi.tc/qi/116158)
