@@ -1,0 +1,1 @@
+[New tool explains how AI ‘sees ’ images and why it might mistake an astronaut for a shovel   @Brown University](https://qi.tc/qi/114017)
