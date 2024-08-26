@@ -1,0 +1,1 @@
+[( PDF) #QuantumComputing   Miriam Meckel - Academia .edu](https://qi.tc/qi/111179)
