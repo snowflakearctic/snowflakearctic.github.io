@@ -1,0 +1,1 @@
+[( PDF) Multi-Valued and Universal Binary Neurons : New Solutions in #NeuralNetwork   Igor Aizenberg - Academia .edu](https://qi.tc/qi/120278)
