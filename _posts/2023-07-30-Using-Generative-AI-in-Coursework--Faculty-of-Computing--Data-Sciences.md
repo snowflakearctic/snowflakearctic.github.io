@@ -1,0 +1,1 @@
+[Using Generative AI in Coursework   Faculty of Computing & Data Sciences](https://qi.tc/qi/115882)
