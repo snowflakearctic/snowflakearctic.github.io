@@ -1,0 +1,1 @@
+[Kennesaw State to offer bachelor’s degree in #DataScience and analytics - News](https://qi.tc/qi/112833)
