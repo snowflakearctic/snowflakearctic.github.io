@@ -1,0 +1,1 @@
+[UMass TRIPODS Virtual Speaker Series   Department of Mathematics and #Statistics](https://qi.tc/qi/114035)
