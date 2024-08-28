@@ -1,0 +1,1 @@
+[What could the acceleration in AI mean for working life and skills ?   LSE Business Review](https://qi.tc/qi/112224)
