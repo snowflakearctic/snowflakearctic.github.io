@@ -1,0 +1,1 @@
+[ISP Faculty Member Invited to AI Workshop at @CarnegieMellon   School of Computing and Information   @PittTweet](https://qi.tc/qi/112589)
