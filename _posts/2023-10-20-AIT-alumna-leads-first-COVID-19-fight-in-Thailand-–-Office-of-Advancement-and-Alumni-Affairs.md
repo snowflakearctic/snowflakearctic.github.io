@@ -1,0 +1,1 @@
+[AIT alumna leads first COVID-19 fight in Thailand – Office of Advancement and Alumni Affairs](https://qi.tc/qi/118289)
