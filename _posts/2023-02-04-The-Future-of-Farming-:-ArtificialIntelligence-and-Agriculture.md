@@ -1,0 +1,1 @@
+[The Future of Farming : #ArtificialIntelligence and Agriculture](https://qi.tc/qi/111170)
