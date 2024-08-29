@@ -1,0 +1,1 @@
+[AI works out the problem of seed germination tests](https://qi.tc/qi/115804)
