@@ -1,0 +1,1 @@
+[Overview of Global AI Regulatory Developments and Some Tips to Reduce Risk   Compliance and Enforcement](https://qi.tc/qi/113312)
