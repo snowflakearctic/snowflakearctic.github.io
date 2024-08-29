@@ -1,0 +1,1 @@
+[Recap : AI Deep Dive Workshop : ChatGPT [Video and Slides ] - Institute for Experiential AI](https://qi.tc/qi/112110)
