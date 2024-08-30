@@ -1,0 +1,1 @@
+[Founders and Industry Partnerships - BML Munjal University ( BMU)](https://qi.tc/qi/116162)
