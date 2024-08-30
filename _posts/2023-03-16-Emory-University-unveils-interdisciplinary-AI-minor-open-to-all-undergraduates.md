@@ -1,0 +1,1 @@
+[Emory University unveils interdisciplinary AI minor open to all undergraduates](https://qi.tc/qi/112114)
