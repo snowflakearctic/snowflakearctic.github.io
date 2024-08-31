@@ -1,0 +1,1 @@
+[UCSB 's Logic Wardens takes second place at 2023 CSAW Logic Locking competition   UCSB #ComputerScience](https://qi.tc/qi/120141)
