@@ -1,0 +1,1 @@
+[To Understand The Problem , You Must Understand The People : A Human-Centered Approach Towards Creating An Inclusion and Equitable Society - UC Irvine Donald Bren School of Information & Computer Sciences](https://qi.tc/qi/118330)
