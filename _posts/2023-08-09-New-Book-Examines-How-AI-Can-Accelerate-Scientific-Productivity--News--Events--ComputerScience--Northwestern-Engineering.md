@@ -1,0 +1,1 @@
+[New Book Examines How AI Can Accelerate Scientific Productivity   News & Events   #ComputerScience   Northwestern Engineering](https://qi.tc/qi/116304)
