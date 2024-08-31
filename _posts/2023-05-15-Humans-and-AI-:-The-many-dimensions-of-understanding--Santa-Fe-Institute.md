@@ -1,0 +1,1 @@
+[Humans and AI : The many dimensions of understanding   Santa Fe Institute](https://qi.tc/qi/113387)
