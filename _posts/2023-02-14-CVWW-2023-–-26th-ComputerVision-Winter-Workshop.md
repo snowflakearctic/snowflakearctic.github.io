@@ -1,0 +1,1 @@
+[CVWW 2023 – 26th #ComputerVision Winter Workshop](https://qi.tc/qi/111371)
