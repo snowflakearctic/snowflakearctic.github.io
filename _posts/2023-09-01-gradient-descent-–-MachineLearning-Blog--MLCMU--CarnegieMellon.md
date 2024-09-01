@@ -1,0 +1,1 @@
+[gradient-descent – #MachineLearning Blog   ML@CMU   @CarnegieMellon](https://qi.tc/qi/116926)
