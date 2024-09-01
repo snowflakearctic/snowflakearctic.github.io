@@ -1,0 +1,1 @@
+[Identification and Case-Ascertainment of Self-Harm in Electronic Health Records ( EHR ) : Development of Machine Learning-Led Tool Using CRIS Data — NIHR Applied #Research Collaboration Oxford and Thames Valley](https://qi.tc/qi/120477)
