@@ -1,0 +1,1 @@
+[Joseph Ozurumba G’23 Plans to Advance his Career with a Master of Science in #DataAnalytics Degree ](https://qi.tc/qi/110217)
