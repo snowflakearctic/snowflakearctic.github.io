@@ -1,0 +1,1 @@
+[TAMIDS SciML Lab Seminar Series : Felipe A.C. Viana : Prognosis Digital Twins with Hybrid Physics-Informed #NeuralNetwork – TAMIDS Scientific #MachineLearning Lab](https://qi.tc/qi/117391)
