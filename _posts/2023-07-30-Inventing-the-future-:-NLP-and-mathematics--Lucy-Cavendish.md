@@ -1,0 +1,1 @@
+[Inventing the future : #NLP and mathematics   Lucy Cavendish](https://qi.tc/qi/115609)
