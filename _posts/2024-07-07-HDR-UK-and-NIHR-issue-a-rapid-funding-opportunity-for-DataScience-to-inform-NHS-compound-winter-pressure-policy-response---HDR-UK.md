@@ -1,0 +1,1 @@
+[HDR UK and NIHR issue a rapid funding opportunity for #DataScience to inform NHS compound winter pressure policy response - HDR UK](https://qi.tc/qi/120618)
