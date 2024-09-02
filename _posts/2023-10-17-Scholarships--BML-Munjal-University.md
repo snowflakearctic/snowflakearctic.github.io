@@ -1,0 +1,1 @@
+[Scholarships   BML Munjal University](https://qi.tc/qi/118235)
