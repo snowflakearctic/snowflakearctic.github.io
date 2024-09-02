@@ -1,0 +1,1 @@
+[CDT student publishes chapter in #ResponsibleA I in Africa : Horizon](https://qi.tc/qi/110642)
