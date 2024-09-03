@@ -1,0 +1,1 @@
+[Digital Humanism and Global Issues in AI Ethics – DIGHUM](https://qi.tc/qi/115512)
