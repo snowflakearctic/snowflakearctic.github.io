@@ -1,0 +1,1 @@
+[MS in #DataScience Ranked #1 in Affordability by Fortune Education   CUNY School of Professional Studies   CUNY SPS ](https://qi.tc/qi/9528)
