@@ -1,0 +1,1 @@
+[AICTE Approved Colleges in India - Firebird Institute , Coimbatore](https://qi.tc/qi/115185)
