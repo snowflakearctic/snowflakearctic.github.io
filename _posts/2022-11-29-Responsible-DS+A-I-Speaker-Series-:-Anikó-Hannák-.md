@@ -1,0 +1,1 @@
+[Responsible DS+A I Speaker Series : Anikó Hannák ](https://qi.tc/qi/103935)
