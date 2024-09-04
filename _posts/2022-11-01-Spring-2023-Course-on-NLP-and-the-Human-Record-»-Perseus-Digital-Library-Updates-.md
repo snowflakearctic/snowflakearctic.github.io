@@ -1,0 +1,1 @@
+[Spring 2023 Course on #NLP and the Human Record » Perseus Digital Library Updates ](https://qi.tc/qi/5778)
