@@ -1,0 +1,1 @@
+[CSE 599 D1 - Advanced #NLP - Spring 2020](https://qi.tc/qi/120517)
