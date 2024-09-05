@@ -1,0 +1,1 @@
+[Applied AI Archives -](https://qi.tc/qi/116754)
