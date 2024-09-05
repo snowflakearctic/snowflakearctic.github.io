@@ -1,0 +1,1 @@
+[DSAN and DataKindDC Partner for a DataDive for Social Impact   Master of Science in #DataScience and Analytics   Georgetown University](https://qi.tc/qi/114842)
