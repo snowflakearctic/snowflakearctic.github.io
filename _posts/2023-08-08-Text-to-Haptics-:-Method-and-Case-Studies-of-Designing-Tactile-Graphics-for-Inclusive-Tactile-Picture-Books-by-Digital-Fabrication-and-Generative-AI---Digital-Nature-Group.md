@@ -1,0 +1,1 @@
+[Text to Haptics : Method and Case Studies of Designing Tactile Graphics for Inclusive Tactile Picture Books by Digital Fabrication and Generative AI - Digital Nature Group](https://qi.tc/qi/116256)
