@@ -1,0 +1,1 @@
+[DSI Alumni Ipek Ensari will Drive mHealth Innovation in New Role at the Icahn School of Medicine at Mount Sinai . - The #DataScience Institute at Columbia University ](https://qi.tc/qi/7909)
