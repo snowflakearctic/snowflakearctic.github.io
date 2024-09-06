@@ -1,0 +1,1 @@
+[" Re-Enchanting the Earth : Why AI needs Religion " Considers Theology , Technology , and What They Reveal About Us as Humans in Villanova Professor’s New Book   Villanova University](https://qi.tc/qi/112835)
