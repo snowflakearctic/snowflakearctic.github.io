@@ -1,0 +1,1 @@
+[#ArtificialIntelligence ( AI ) and the New CIO Leadership Conference – Center for Assurance #Research and Engineering](https://qi.tc/qi/112701)
