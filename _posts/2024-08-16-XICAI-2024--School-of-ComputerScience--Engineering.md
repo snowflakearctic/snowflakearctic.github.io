@@ -1,0 +1,1 @@
+[XICAI-2024   School of #ComputerScience & Engineering](https://qi.tc/qi/120814)
