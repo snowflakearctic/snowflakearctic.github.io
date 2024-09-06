@@ -1,0 +1,1 @@
+[Kay Firth-Butterfield : “ Why does AI need to be Trustworthy and the axis of power between Big Tech and society ” — DIGHUM](https://qi.tc/qi/116742)
