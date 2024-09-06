@@ -1,0 +1,1 @@
+[Social and Behavioral #DataScience – IDSC Magazine](https://qi.tc/qi/114170)
