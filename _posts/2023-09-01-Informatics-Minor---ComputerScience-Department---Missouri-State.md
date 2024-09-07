@@ -1,0 +1,1 @@
+[Informatics Minor - #ComputerScience Department - Missouri State](https://qi.tc/qi/116841)
