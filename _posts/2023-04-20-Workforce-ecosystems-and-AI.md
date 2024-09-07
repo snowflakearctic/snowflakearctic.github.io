@@ -1,0 +1,1 @@
+[Workforce ecosystems and AI](https://qi.tc/qi/112810)
