@@ -1,0 +1,1 @@
+[Joint international MSc program in Brain Sciences , #DataScience track Bar-Ilan University and the University of Lisbon   The Gonda Multidisciplinary Brain #Research Center ](https://qi.tc/qi/10183)
