@@ -1,0 +1,1 @@
+[University of Hull   MSc in People Analytics](https://qi.tc/qi/114438)
