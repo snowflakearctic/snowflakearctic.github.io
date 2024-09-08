@@ -1,0 +1,1 @@
+[Algorithms Have Put the AI in Painting . But Is It Art ?   Tufts Now](https://qi.tc/qi/112734)
