@@ -1,0 +1,1 @@
+[How does ChatGPT do that ? ! Generative AI for the non-expert - LibCal - SMU Libraries](https://qi.tc/qi/112801)
