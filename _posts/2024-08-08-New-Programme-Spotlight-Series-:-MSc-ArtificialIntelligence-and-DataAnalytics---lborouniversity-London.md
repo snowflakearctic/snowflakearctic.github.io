@@ -1,0 +1,1 @@
+[New Programme Spotlight Series : MSc #ArtificialIntelligence and #DataAnalytics - @lborouniversity London](https://qi.tc/qi/120783)
