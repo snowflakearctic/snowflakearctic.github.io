@@ -1,0 +1,1 @@
+[Perspectives on #Statistics in Medicine 32nd Annual Lecture : Professor Salim S. Abdool Karim   @LSHTM](https://qi.tc/qi/113398)
