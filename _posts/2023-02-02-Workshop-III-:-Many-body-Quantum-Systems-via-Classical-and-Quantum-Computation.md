@@ -1,0 +1,1 @@
+[Workshop III : Many-body Quantum Systems via Classical and Quantum Computation](https://qi.tc/qi/111130)
