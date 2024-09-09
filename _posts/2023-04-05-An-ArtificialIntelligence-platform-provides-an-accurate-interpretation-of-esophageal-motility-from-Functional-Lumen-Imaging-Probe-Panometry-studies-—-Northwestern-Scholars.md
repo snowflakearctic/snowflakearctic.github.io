@@ -1,0 +1,1 @@
+[An #ArtificialIntelligence platform provides an accurate interpretation of esophageal motility from Functional Lumen Imaging Probe Panometry studies — Northwestern Scholars](https://qi.tc/qi/112525)
