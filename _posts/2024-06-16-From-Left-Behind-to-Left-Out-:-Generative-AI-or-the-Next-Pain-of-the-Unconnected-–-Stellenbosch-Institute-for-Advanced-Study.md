@@ -1,0 +1,1 @@
+[From Left Behind to Left Out : Generative AI or the Next Pain of the Unconnected – Stellenbosch Institute for Advanced Study](https://qi.tc/qi/120391)
