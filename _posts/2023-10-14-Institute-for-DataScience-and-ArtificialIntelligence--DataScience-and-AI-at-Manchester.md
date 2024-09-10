@@ -1,0 +1,1 @@
+[Institute for #DataScience and #ArtificialIntelligence   #DataScience and AI at Manchester](https://qi.tc/qi/118151)
