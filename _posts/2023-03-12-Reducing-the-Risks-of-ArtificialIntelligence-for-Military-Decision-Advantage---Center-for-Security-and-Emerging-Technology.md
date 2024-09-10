@@ -1,0 +1,1 @@
+[Reducing the Risks of #ArtificialIntelligence for Military Decision Advantage - Center for Security and Emerging Technology](https://qi.tc/qi/112004)
