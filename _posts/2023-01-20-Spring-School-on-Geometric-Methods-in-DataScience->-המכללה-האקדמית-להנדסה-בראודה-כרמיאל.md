@@ -1,0 +1,1 @@
+[Spring School on Geometric Methods in #DataScience > המכללה האקדמית להנדסה בראודה כרמיאל](https://qi.tc/qi/110848)
