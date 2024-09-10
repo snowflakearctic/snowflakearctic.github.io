@@ -1,0 +1,1 @@
+[The Schools of #ComputerScience and Mathematics & #Statistics are now an Institutional Member of the [ European Women in Mathematics ( EWM)]   #ComputerScience Blog](https://qi.tc/qi/111270)
