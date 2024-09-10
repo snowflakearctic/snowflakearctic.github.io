@@ -1,0 +1,1 @@
+[Wayne State’s Abolmaali brings robots , AI research to inspect service life of Michigan’s pipelines - Today@Wayne - @waynestate ](https://qi.tc/qi/109940)
