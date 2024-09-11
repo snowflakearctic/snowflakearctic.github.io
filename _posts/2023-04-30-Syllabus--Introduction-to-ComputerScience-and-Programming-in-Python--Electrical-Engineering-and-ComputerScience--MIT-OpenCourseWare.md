@@ -1,0 +1,1 @@
+[Syllabus   Introduction to #ComputerScience and Programming in #Python   Electrical Engineering and #ComputerScience   @MIT OpenCourseWare](https://qi.tc/qi/113035)
