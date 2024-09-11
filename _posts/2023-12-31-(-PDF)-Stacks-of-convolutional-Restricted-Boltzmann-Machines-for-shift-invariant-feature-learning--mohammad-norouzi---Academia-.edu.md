@@ -1,0 +1,1 @@
+[( PDF) Stacks of convolutional Restricted Boltzmann Machines for shift-invariant feature learning   mohammad norouzi - Academia .edu](https://qi.tc/qi/118855)
