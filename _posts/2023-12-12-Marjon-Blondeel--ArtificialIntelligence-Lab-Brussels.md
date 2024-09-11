@@ -1,0 +1,1 @@
+[Marjon Blondeel   #ArtificialIntelligence Lab Brussels](https://qi.tc/qi/118650)
