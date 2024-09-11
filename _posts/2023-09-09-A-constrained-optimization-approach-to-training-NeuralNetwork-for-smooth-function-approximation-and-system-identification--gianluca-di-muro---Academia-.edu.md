@@ -1,0 +1,1 @@
+[A constrained-optimization approach to training #NeuralNetwork for smooth function approximation and system identification   gianluca di muro - Academia .edu](https://qi.tc/qi/117305)
