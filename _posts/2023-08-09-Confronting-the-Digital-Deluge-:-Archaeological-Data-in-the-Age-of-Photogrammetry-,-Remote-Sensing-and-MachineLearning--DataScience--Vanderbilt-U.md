@@ -1,0 +1,1 @@
+[Confronting the Digital Deluge : Archaeological Data in the Age of Photogrammetry , Remote Sensing and #MachineLearning   #DataScience   @Vanderbilt U](https://qi.tc/qi/116277)
