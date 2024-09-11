@@ -1,0 +1,1 @@
+[Unlocking the Power of Voice for Financial Risk Prediction : A Theory-Driven #DeepLearning Design Approach](https://qi.tc/qi/112182)
