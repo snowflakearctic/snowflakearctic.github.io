@@ -1,0 +1,1 @@
+[WiDS Barcelona 2023 - Women in #DataScience   Facultat d'Informàtica de Barcelona](https://qi.tc/qi/112410)
