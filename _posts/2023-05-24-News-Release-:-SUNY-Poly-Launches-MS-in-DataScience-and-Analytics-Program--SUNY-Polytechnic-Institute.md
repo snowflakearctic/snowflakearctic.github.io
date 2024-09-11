@@ -1,0 +1,1 @@
+[News Release : SUNY Poly Launches MS in #DataScience and Analytics Program   SUNY Polytechnic Institute](https://qi.tc/qi/113580)
