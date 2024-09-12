@@ -1,0 +1,1 @@
+[AI Seminar : Symbols as a Lingua Franca for Supporting Human-AI Interaction For Explainable and Advisable AI Systems - @OregonState](https://qi.tc/qi/110815)
