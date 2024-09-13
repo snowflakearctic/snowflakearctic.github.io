@@ -1,0 +1,1 @@
+[" Prompting Higher Education Towards AI " by Bronwyn Eager and Ryan Brunton](https://qi.tc/qi/113756)
