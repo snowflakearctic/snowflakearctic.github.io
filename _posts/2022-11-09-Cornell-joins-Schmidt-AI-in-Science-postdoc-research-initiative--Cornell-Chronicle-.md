@@ -1,0 +1,1 @@
+[Cornell joins Schmidt AI in Science postdoc research initiative   Cornell Chronicle ](https://qi.tc/qi/7665)
