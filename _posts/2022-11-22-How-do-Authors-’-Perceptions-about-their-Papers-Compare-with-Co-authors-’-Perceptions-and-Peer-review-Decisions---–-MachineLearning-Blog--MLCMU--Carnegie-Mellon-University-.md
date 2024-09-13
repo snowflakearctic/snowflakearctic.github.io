@@ -1,0 +1,1 @@
+[How do Authors ’ Perceptions about their Papers Compare with Co-authors ’ Perceptions and Peer-review Decisions ? – #MachineLearning Blog   ML@CMU   Carnegie Mellon University ](https://qi.tc/qi/24439)
