@@ -1,0 +1,1 @@
+[UNSW academics awarded more than $ 1.6m for joint Australian-US #ArtificialIntelligence research   UNSW Newsroom](https://qi.tc/qi/111501)
