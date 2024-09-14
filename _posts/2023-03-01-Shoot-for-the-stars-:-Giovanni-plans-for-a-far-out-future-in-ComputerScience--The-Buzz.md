@@ -1,0 +1,1 @@
+[Shoot for the stars : Giovanni plans for a far-out future in #ComputerScience   The Buzz](https://qi.tc/qi/111737)
