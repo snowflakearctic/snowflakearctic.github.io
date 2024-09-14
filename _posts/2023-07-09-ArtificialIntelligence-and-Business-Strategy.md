@@ -1,0 +1,1 @@
+[#ArtificialIntelligence and Business Strategy](https://qi.tc/qi/115321)
