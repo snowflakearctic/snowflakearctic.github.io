@@ -1,0 +1,1 @@
+[BYU study suggests AI can predict election outcomes - The Daily Universe](https://qi.tc/qi/113748)
