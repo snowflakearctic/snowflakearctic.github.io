@@ -1,0 +1,1 @@
+[PhD studentship ( 3.5 years fully funded ) : #DeepLearning for large-scale analysis of brightfield and multiplexed whole slide images . - #Research Studentships](https://qi.tc/qi/111610)
