@@ -1,0 +1,1 @@
+[AI Can Write a More Believable Restaurant Review Than a Human Can   Yale Insights](https://qi.tc/qi/120909)
