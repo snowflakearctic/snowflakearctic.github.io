@@ -1,0 +1,1 @@
+[Guidelines for the Ethical Use of Generative AI ( i .e . ChatGPT ) on Campus - Markkula Center for Applied Ethics](https://qi.tc/qi/113652)
