@@ -1,0 +1,1 @@
+[Comparison of #MachineLearning techniques to determine bee hive mite infestation level from mobile phone digital images - Kingston University #Research Repository](https://qi.tc/qi/112787)
