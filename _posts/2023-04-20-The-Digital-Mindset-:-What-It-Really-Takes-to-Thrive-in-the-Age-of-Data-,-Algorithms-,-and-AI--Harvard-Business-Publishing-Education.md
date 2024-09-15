@@ -1,0 +1,1 @@
+[The Digital Mindset : What It Really Takes to Thrive in the Age of Data , Algorithms , and AI   Harvard Business Publishing Education](https://qi.tc/qi/112829)
