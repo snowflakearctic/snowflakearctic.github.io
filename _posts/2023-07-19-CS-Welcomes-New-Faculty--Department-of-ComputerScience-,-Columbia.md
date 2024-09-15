@@ -1,0 +1,1 @@
+[CS Welcomes New Faculty   Department of #ComputerScience , @Columbia](https://qi.tc/qi/114986)
