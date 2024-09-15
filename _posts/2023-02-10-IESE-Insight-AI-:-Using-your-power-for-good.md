@@ -1,0 +1,1 @@
+[IESE Insight AI : Using your power for good](https://qi.tc/qi/111285)
