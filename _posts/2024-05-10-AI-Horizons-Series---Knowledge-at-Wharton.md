@@ -1,0 +1,1 @@
+[AI Horizons Series - Knowledge at Wharton](https://qi.tc/qi/120106)
