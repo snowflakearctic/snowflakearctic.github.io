@@ -1,0 +1,1 @@
+[Top #ComputerScience Engineering College in Ahmedabad - Indus Uni .](https://qi.tc/qi/117488)
