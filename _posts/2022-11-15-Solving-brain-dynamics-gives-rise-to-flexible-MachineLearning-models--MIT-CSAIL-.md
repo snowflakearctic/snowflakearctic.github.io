@@ -1,0 +1,1 @@
+[Solving brain dynamics gives rise to flexible #MachineLearning models   @MIT CSAIL ](https://qi.tc/qi/9060)
