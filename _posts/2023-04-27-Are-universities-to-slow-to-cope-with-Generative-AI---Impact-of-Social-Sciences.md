@@ -1,0 +1,1 @@
+[Are universities to slow to cope with Generative AI?   Impact of Social Sciences](https://qi.tc/qi/112972)
