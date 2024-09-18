@@ -1,0 +1,1 @@
+[Fairness in AI – Lessons from Practice - AI at Wharton](https://qi.tc/qi/120782)
