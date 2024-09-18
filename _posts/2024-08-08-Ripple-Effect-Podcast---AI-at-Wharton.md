@@ -1,0 +1,1 @@
+[Ripple Effect Podcast - AI at Wharton](https://qi.tc/qi/120764)
