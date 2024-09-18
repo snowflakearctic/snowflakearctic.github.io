@@ -1,0 +1,1 @@
+[Movement classification and segmentation using event-based sensing and spiking #NeuralNetwork - Strathprints ](https://qi.tc/qi/6346)
