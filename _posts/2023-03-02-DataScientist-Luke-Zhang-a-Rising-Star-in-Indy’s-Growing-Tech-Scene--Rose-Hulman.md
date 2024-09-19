@@ -1,0 +1,1 @@
+[#DataScientist Luke Zhang a Rising Star in Indy’s Growing Tech Scene   Rose-Hulman](https://qi.tc/qi/111790)
