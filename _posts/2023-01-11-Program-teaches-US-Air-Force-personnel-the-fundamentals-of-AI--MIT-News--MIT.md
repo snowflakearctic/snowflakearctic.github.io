@@ -1,0 +1,1 @@
+[Program teaches US Air Force personnel the fundamentals of AI   @MIT News   @MIT](https://qi.tc/qi/110628)
