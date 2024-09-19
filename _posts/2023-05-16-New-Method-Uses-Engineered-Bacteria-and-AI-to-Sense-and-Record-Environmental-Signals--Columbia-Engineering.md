@@ -1,0 +1,1 @@
+[New Method Uses Engineered Bacteria and AI to Sense and Record Environmental Signals   Columbia Engineering](https://qi.tc/qi/113403)
