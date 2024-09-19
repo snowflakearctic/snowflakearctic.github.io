@@ -1,0 +1,1 @@
+[Vanderbilt #DataScience Institute Faculty member to lead $ 2.7 Million AI Initiative for Digital Kidney Histopathology   #DataScience   @Vanderbilt U](https://qi.tc/qi/112758)
