@@ -1,0 +1,1 @@
+[( PDF) #NeuralNetwork   Praveen Kumar - Academia .edu](https://qi.tc/qi/120679)
