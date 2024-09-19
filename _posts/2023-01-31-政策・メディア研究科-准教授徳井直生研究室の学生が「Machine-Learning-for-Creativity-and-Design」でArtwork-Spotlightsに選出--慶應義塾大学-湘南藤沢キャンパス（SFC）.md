@@ -1,0 +1,1 @@
+[政策・メディア研究科 准教授徳井直生研究室の学生が「Machine Learning for Creativity and Design」でArtwork Spotlightsに選出   慶應義塾大学 湘南藤沢キャンパス（SFC）](https://qi.tc/qi/111060)
