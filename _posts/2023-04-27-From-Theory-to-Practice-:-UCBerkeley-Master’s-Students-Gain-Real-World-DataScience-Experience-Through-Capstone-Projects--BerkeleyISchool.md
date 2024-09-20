@@ -1,0 +1,1 @@
+[From Theory to Practice : @UCBerkeley Master’s Students Gain Real-World #DataScience Experience Through Capstone Projects   @BerkeleyISchool](https://qi.tc/qi/112991)
