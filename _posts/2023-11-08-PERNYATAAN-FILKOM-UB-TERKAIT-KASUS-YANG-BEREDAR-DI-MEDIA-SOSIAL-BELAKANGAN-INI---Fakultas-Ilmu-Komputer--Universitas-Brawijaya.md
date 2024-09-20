@@ -1,0 +1,1 @@
+[PERNYATAAN FILKOM UB TERKAIT KASUS YANG BEREDAR DI MEDIA SOSIAL BELAKANGAN INI - Fakultas Ilmu Komputer   Universitas Brawijaya](https://qi.tc/qi/118435)
