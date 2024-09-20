@@ -1,0 +1,1 @@
+[Convocatòria - +RAIN Film Fest   AI & WEB3 Creatives Summit   2023 ( UPF )](https://qi.tc/qi/112086)
