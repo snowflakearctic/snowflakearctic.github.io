@@ -1,0 +1,1 @@
+[Exec Ed   Stanford HAI](https://qi.tc/qi/117388)
