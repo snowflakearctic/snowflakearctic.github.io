@@ -1,0 +1,1 @@
+[Artistic Mathematics : Truth and Beauty to highlight Mathematics and #Statistics Awareness Month : Newsroom : Texas State University](https://qi.tc/qi/112645)
