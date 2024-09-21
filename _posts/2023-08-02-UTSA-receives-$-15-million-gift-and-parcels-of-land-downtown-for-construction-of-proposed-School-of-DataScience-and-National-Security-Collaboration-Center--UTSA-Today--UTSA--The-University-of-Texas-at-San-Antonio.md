@@ -1,0 +1,1 @@
+[UTSA receives $ 15 million gift and parcels of land downtown for construction of proposed School of #DataScience and National Security Collaboration Center   UTSA Today   UTSA   The University of Texas at San Antonio](https://qi.tc/qi/115877)
