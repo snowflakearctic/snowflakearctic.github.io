@@ -1,0 +1,1 @@
+[“Algorithmic Rural Road Planning in India : Constrained Capacities and Choices in Public Sector” - Harsh Nisar , Government of India   Center for Socially #ResponsibleA I ](https://qi.tc/qi/12435)
