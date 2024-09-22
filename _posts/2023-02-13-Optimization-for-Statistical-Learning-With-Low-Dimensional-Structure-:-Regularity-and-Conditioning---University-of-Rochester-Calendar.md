@@ -1,0 +1,1 @@
+[Optimization for #Statistical Learning With Low Dimensional Structure : Regularity and Conditioning - University of Rochester Calendar](https://qi.tc/qi/111353)
