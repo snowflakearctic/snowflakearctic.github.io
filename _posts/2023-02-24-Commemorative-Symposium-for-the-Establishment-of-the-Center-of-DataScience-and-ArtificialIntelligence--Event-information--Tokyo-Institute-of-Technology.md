@@ -1,0 +1,1 @@
+[Commemorative Symposium for the Establishment of the Center of #DataScience and #ArtificialIntelligence   Event information   Tokyo Institute of Technology](https://qi.tc/qi/111630)
