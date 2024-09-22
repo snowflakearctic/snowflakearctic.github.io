@@ -1,0 +1,1 @@
+[Managing End-to-End AI Projects - RACE](https://qi.tc/qi/115091)
