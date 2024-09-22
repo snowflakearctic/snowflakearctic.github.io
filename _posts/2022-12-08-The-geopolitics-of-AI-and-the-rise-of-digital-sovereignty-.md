@@ -1,0 +1,1 @@
+[The geopolitics of AI and the rise of digital sovereignty ](https://qi.tc/qi/110116)
