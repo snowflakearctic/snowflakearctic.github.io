@@ -1,0 +1,1 @@
+[NSF funds 2 Ohio State-based institutes to expand #ArtificialIntelligence research   COLLEGE OF ENGINEERING](https://qi.tc/qi/114120)
