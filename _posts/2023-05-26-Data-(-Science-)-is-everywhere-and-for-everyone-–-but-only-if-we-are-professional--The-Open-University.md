@@ -1,0 +1,1 @@
+[Data ( Science ) is everywhere and for everyone – but only if we are professional   The Open University](https://qi.tc/qi/113630)
