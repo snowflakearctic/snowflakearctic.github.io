@@ -1,0 +1,1 @@
+[Legislative Roundup : NSF for the Future Act Clears Key Committee While New AI #Research , Semiconductor and Immigration Measures Are Introduced - Center for Security and Emerging Technology](https://qi.tc/qi/118086)
