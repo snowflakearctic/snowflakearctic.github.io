@@ -1,0 +1,1 @@
+[Obertes les inscripcions del Top Rosies Talent , el programa de generació de talent femení en Intel·ligència Artificial que et connectarà a una professió prometedora i engrescadora — IDEAI-UPC. Intelligent #DataScience and #ArtificialIntelligence #Research Center — UPC. Universitat Politècnica de Catalunya ](https://qi.tc/qi/11134)
