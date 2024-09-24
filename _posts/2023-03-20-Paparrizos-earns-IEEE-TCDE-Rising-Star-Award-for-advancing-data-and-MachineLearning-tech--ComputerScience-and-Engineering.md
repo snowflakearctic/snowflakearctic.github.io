@@ -1,0 +1,1 @@
+[Paparrizos earns IEEE TCDE Rising Star Award for advancing data and #MachineLearning tech   #ComputerScience and Engineering](https://qi.tc/qi/112170)
