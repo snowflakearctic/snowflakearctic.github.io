@@ -1,0 +1,1 @@
+[MOSAIC Summer’s End community event at the Terrace – Sept. 21 – eCALS](https://qi.tc/qi/116997)
