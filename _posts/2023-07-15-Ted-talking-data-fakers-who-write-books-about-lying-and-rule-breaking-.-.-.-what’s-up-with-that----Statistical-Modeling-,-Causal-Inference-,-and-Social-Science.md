@@ -1,0 +1,1 @@
+[Ted-talking data fakers who write books about lying and rule-breaking . . . what’s up with that ?   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/114576)
