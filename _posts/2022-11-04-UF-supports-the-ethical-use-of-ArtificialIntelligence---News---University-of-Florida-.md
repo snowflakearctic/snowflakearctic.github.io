@@ -1,0 +1,1 @@
+[UF supports the ethical use of #ArtificialIntelligence - News - University of Florida ](https://qi.tc/qi/6613)
