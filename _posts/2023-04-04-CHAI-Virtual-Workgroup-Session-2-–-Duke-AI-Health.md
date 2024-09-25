@@ -1,0 +1,1 @@
+[CHAI Virtual Workgroup Session 2 – Duke AI Health](https://qi.tc/qi/112499)
