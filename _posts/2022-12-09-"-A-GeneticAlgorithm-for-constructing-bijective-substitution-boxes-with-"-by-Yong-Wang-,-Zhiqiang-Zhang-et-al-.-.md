@@ -1,0 +1,1 @@
+[" A #GeneticAlgorithm for constructing bijective substitution boxes with " by Yong Wang , Zhiqiang Zhang et al . ](https://qi.tc/qi/110129)
