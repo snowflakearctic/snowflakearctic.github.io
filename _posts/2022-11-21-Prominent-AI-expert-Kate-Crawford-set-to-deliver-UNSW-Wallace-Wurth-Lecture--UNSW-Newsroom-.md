@@ -1,0 +1,1 @@
+[Prominent AI expert Kate Crawford set to deliver UNSW Wallace Wurth Lecture   UNSW Newsroom ](https://qi.tc/qi/10290)
