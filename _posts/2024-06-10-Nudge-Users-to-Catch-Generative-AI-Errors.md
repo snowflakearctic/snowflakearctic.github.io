@@ -1,0 +1,1 @@
+[Nudge Users to Catch Generative AI Errors](https://qi.tc/qi/120360)
