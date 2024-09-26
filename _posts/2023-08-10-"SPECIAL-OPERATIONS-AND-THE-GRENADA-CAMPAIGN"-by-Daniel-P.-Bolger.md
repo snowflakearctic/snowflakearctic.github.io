@@ -1,0 +1,1 @@
+["SPECIAL OPERATIONS AND THE GRENADA CAMPAIGN" by Daniel P. Bolger](https://qi.tc/qi/116394)
