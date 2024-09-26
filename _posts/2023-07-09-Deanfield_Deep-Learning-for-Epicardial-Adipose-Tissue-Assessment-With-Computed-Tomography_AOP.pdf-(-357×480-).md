@@ -1,0 +1,1 @@
+[Deanfield_Deep-Learning for Epicardial Adipose Tissue Assessment With Computed Tomography_AOP.pdf ( 357×480 )](https://qi.tc/qi/114037)
