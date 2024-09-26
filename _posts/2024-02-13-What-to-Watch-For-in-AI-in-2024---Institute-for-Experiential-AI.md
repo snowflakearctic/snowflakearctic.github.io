@@ -1,0 +1,1 @@
+[What to Watch For in AI in 2024 - Institute for Experiential AI](https://qi.tc/qi/119153)
