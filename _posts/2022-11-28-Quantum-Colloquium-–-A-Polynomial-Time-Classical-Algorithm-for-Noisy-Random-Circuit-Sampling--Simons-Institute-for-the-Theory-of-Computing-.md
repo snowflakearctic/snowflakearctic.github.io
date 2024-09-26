@@ -1,0 +1,1 @@
+[Quantum Colloquium – A Polynomial-Time Classical Algorithm for Noisy Random Circuit Sampling   Simons Institute for the Theory of Computing ](https://qi.tc/qi/88935)
