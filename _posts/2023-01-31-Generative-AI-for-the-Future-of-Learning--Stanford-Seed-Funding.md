@@ -1,0 +1,1 @@
+[Generative AI for the Future of Learning   Stanford Seed Funding](https://qi.tc/qi/111078)
