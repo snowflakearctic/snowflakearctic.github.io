@@ -1,0 +1,1 @@
+[Fortune Ranks Georgia State’s M.S. in #DataScience and Analytics Among Top 20 U.S. Programs - Georgia State University News - Faculty/Research , Press Releases , Robinson College of Business -](https://qi.tc/qi/110544)
