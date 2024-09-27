@@ -1,0 +1,1 @@
+[2022-2023 Minor Ambassadors — School of #DataScience](https://qi.tc/qi/111325)
