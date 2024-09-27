@@ -1,0 +1,1 @@
+[Videos now on YouTube introduce Quantum Algorithms · #ComputerScience and Electrical Engineering · myUMBC](https://qi.tc/qi/111485)
