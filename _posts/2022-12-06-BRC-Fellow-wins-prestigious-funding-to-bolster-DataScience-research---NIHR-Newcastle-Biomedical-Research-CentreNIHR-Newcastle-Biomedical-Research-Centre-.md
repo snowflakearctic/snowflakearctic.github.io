@@ -1,0 +1,1 @@
+[BRC Fellow wins prestigious funding to bolster #DataScience research - NIHR Newcastle #Biomedical #Research CentreNIHR Newcastle #Biomedical #Research Centre ](https://qi.tc/qi/110032)
