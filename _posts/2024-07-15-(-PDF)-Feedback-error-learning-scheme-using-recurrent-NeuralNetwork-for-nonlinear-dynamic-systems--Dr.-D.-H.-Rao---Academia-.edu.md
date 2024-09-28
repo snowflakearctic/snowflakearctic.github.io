@@ -1,0 +1,1 @@
+[( PDF) Feedback-error learning scheme using recurrent #NeuralNetwork for nonlinear dynamic systems   Dr. D. H. Rao - Academia .edu](https://qi.tc/qi/120674)
