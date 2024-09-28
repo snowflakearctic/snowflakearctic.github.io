@@ -1,0 +1,1 @@
+[Introduction to #MachineLearning Info Session](https://qi.tc/qi/111200)
