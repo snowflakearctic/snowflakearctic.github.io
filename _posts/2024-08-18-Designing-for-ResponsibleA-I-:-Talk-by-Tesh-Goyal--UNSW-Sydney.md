@@ -1,0 +1,1 @@
+[Designing for #ResponsibleA I : Talk by Tesh Goyal   UNSW Sydney](https://qi.tc/qi/120866)
