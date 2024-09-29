@@ -1,0 +1,1 @@
+[Vista de Aplicación de la regresión polinomial para la caracterización de la curva del COVID-19 , mediante técnicas de #MachineLearning](https://qi.tc/qi/116200)
