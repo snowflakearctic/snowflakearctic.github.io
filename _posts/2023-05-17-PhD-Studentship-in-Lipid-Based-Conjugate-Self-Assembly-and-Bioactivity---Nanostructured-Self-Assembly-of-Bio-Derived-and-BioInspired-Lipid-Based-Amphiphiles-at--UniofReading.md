@@ -1,0 +1,1 @@
+[PhD Studentship in Lipid-Based Conjugate Self-Assembly and Bioactivity - Nanostructured Self-Assembly of Bio-Derived and #BioInspired Lipid-Based Amphiphiles at @ UniofReading](https://qi.tc/qi/113435)
