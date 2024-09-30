@@ -1,0 +1,1 @@
+[Update : 2022 Student #DataScience Competition Awards – TAMIDS](https://qi.tc/qi/111141)
