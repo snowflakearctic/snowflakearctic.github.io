@@ -1,0 +1,1 @@
+[Pedagogy and AI ( 1 ) : Exploring Generative AI Tools for teaching and research   Digital Creativity and Cultures Hub](https://qi.tc/qi/121003)
