@@ -1,0 +1,1 @@
+[Announcing the Awardees of the 2023 TAD Center #Research Grants   TAD - Center for #ArtificialIntelligence & #DataScience   Tel Aviv University](https://qi.tc/qi/111949)
