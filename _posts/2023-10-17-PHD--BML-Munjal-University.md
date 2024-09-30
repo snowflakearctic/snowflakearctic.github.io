@@ -1,0 +1,1 @@
+[PHD   BML Munjal University](https://qi.tc/qi/118236)
