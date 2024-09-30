@@ -1,0 +1,1 @@
+[Why study computer science at the University of Minnesota ?   Department of #ComputerScience and Engineering   College of Science and Engineering](https://qi.tc/qi/115317)
