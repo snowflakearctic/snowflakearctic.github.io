@@ -1,0 +1,1 @@
+[Patience Akatuhwera – AIMS Ghana](https://qi.tc/qi/120870)
