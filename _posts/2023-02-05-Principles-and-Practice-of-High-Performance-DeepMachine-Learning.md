@@ -1,0 +1,1 @@
+[Principles and Practice of High Performance Deep/Machine Learning](https://qi.tc/qi/111173)
