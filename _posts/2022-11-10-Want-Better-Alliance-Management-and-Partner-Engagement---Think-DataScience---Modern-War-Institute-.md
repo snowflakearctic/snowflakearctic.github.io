@@ -1,0 +1,1 @@
+[Want Better Alliance Management and Partner Engagement ? Think #DataScience - Modern War Institute ](https://qi.tc/qi/7881)
