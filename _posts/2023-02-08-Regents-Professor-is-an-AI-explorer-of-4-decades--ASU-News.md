@@ -1,0 +1,1 @@
+[Regents Professor is an AI explorer of 4 decades   @ASU News](https://qi.tc/qi/111235)
