@@ -1,0 +1,1 @@
+[Designing Efficient #DeepLearning Systems Updates   Professional Education](https://qi.tc/qi/116194)
