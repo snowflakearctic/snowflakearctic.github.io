@@ -1,0 +1,1 @@
+[Allen School News » Data science and decentralization : Bloomberg Ph.D. #Fellowship recipient Suchin Gururangan makes large language models more manageable to advance social good](https://qi.tc/qi/110366)
