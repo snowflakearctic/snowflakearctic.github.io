@@ -1,0 +1,1 @@
+[Wearables and AI for Detection of Parkinsons Disease - Find a PhD ](https://qi.tc/qi/109964)
