@@ -1,0 +1,1 @@
+[SynChronize '23 : 20th -22nd Dec '23   School of #ComputerScience & Engineering](https://qi.tc/qi/120905)
