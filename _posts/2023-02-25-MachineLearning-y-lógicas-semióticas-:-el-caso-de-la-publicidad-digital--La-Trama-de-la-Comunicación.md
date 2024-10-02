@@ -1,0 +1,1 @@
+[#MachineLearning y lógicas semióticas : el caso de la publicidad digital   La Trama de la Comunicación](https://qi.tc/qi/111670)
