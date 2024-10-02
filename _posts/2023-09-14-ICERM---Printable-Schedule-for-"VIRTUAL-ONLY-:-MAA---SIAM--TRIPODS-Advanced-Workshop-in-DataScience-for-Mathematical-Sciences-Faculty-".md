@@ -1,0 +1,1 @@
+[ICERM - Printable Schedule for "VIRTUAL ONLY : MAA - SIAM & TRIPODS Advanced Workshop in #DataScience for Mathematical Sciences Faculty "](https://qi.tc/qi/117546)
