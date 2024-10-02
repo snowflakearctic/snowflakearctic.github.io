@@ -1,0 +1,1 @@
+[Piyushimita ( Vonu ) Thakuriah Appointed to NAS Committee on Applied and Theoretical #Statistics – Edward J. Bloustein School of Planning and Public Policy](https://qi.tc/qi/113416)
