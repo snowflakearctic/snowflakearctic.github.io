@@ -1,0 +1,1 @@
+[DBMI-Led Workshop Focused On AI Integration In Personal Informatics Set For May 11 - Columbia DBMI](https://qi.tc/qi/119418)
