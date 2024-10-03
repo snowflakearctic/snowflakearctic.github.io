@@ -1,0 +1,1 @@
+[The Turing Transformation : #ArtificialIntelligence , intelligence augmentation , and skill premiums   Brookings](https://qi.tc/qi/117399)
