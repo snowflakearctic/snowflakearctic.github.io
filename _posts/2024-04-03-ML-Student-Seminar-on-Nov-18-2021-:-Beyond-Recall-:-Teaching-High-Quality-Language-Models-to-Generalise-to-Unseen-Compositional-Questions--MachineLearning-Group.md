@@ -1,0 +1,1 @@
+[ML Student Seminar on Nov 18 2021 : Beyond Recall : Teaching High Quality Language Models to Generalise to Unseen Compositional Questions   #MachineLearning Group](https://qi.tc/qi/119698)
