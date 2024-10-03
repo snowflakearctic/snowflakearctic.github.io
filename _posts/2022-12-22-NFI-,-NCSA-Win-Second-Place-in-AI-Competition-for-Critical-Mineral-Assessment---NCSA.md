@@ -1,0 +1,1 @@
+[NFI , NCSA Win Second Place in AI Competition for Critical Mineral Assessment - NCSA](https://qi.tc/qi/110391)
