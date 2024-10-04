@@ -1,0 +1,1 @@
+[AIMS Ghana in Collaboration with CEMC Waterloo , train Mathematics teachers across Africa – AIMS Ghana](https://qi.tc/qi/120611)
