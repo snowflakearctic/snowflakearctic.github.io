@@ -1,0 +1,1 @@
+[( 29 Jun 2023 ) Seminar on #ArtificialIntelligence in the Practice of Medicine](https://qi.tc/qi/113915)
