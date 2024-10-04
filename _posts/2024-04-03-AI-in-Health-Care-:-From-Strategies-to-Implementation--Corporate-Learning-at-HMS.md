@@ -1,0 +1,1 @@
+[AI in Health Care : From Strategies to Implementation   Corporate Learning at HMS](https://qi.tc/qi/119723)
