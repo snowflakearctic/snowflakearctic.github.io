@@ -1,0 +1,1 @@
+[The geopolitics of generative AI   Brookings](https://qi.tc/qi/114134)
