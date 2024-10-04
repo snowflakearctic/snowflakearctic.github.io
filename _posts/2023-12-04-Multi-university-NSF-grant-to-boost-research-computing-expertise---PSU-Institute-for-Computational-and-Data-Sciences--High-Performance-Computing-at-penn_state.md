@@ -1,0 +1,1 @@
+[Multi-university NSF grant to boost research computing expertise - PSU Institute for Computational and Data Sciences   High Performance Computing at @penn_state](https://qi.tc/qi/118593)
