@@ -1,0 +1,1 @@
+[New Report Details Costs and Structure of a National AI #Research Resource](https://qi.tc/qi/111435)
