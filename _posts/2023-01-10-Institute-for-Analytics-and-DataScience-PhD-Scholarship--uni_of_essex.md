@@ -1,0 +1,1 @@
+[Institute for Analytics and #DataScience PhD Scholarship   @uni_of_essex](https://qi.tc/qi/110620)
