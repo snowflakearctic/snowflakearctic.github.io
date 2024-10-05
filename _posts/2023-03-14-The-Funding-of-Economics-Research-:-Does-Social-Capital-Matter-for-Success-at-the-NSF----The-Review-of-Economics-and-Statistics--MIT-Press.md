@@ -1,0 +1,1 @@
+[The Funding of Economics #Research : Does Social Capital Matter for Success at the @NSF ?   The Review of Economics and #Statistics   @MIT Press](https://qi.tc/qi/112049)
