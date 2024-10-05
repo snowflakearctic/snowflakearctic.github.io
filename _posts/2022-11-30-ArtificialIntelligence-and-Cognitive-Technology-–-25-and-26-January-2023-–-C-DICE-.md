@@ -1,0 +1,1 @@
+[#ArtificialIntelligence and Cognitive Technology – 25 and 26 January 2023 – C-DICE ](https://qi.tc/qi/109948)
