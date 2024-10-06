@@ -1,0 +1,1 @@
+[Royal #Statistical Society Silver Medal for Professor Mark Girolami   Christs College Cambridge](https://qi.tc/qi/112354)
