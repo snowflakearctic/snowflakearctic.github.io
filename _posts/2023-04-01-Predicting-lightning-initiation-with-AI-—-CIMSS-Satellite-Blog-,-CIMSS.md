@@ -1,0 +1,1 @@
+[Predicting lightning initiation with AI — CIMSS Satellite Blog , CIMSS](https://qi.tc/qi/112427)
