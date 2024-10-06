@@ -1,0 +1,1 @@
+[Paul College Researchers Use AI to Evaluate Health News Quality   @uofnh Today](https://qi.tc/qi/120025)
