@@ -1,0 +1,1 @@
+[@UCBerkeley launches AI training program to address criminal justice system inequalities with support from $ 3M NSF grant   Letters & Science](https://qi.tc/qi/117445)
