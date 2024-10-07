@@ -1,0 +1,1 @@
+[Generative AI : Ethical , Legal , and Technical Questions ( Webinar ) - Santa Clara Law -Santa Clara Law](https://qi.tc/qi/113147)
