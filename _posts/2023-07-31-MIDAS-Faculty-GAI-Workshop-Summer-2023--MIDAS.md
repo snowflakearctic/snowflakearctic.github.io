@@ -1,0 +1,1 @@
+[MIDAS Faculty GAI Workshop Summer 2023   MIDAS](https://qi.tc/qi/115731)
