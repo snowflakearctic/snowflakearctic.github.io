@@ -1,0 +1,1 @@
+[Harnessing satellite imagery and AI to help fight poverty in Africa   Stanford Institute for Economic Policy #Research ( SIEPR )](https://qi.tc/qi/117650)
