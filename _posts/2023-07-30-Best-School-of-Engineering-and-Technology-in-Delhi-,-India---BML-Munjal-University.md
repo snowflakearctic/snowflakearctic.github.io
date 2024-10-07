@@ -1,0 +1,1 @@
+[Best School of Engineering and Technology in Delhi , India - BML Munjal University](https://qi.tc/qi/116150)
