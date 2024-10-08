@@ -1,0 +1,1 @@
+[Assistant Professor Robert Rand Receives Air Force Young Investigator Grant – Department of #ComputerScience](https://qi.tc/qi/110335)
