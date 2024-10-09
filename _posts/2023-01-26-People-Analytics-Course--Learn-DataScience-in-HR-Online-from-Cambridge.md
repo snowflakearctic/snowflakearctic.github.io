@@ -1,0 +1,1 @@
+[People Analytics Course   Learn #DataScience in HR Online from Cambridge](https://qi.tc/qi/110959)
