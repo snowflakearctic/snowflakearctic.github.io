@@ -1,0 +1,1 @@
+[Dynamical Systems seminar - Dynamical approximation of entire functions   School of Mathematics and #Statistics](https://qi.tc/qi/112510)
