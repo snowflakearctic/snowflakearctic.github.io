@@ -1,0 +1,1 @@
+[NSF Awards $ 800,000 to Support Development of Edge AI Applications   University of Arkansas ](https://qi.tc/qi/10281)
