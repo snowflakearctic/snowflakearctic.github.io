@@ -1,0 +1,1 @@
+[#DataScience for Marketing Info Session](https://qi.tc/qi/111749)
