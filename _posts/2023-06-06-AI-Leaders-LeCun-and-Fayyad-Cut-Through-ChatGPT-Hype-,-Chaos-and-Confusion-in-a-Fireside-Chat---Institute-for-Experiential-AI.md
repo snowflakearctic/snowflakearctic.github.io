@@ -1,0 +1,1 @@
+[AI Leaders LeCun and Fayyad Cut Through ChatGPT Hype , Chaos and Confusion in a Fireside Chat - Institute for Experiential AI](https://qi.tc/qi/113851)
