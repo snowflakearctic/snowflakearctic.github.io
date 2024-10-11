@@ -1,0 +1,1 @@
+[Stephens ’19 uses #DataScience skills to determine bias in AI - Department of Applied Mathematics and #Statistics](https://qi.tc/qi/111317)
