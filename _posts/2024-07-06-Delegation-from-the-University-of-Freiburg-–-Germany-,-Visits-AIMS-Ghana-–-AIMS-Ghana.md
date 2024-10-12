@@ -1,0 +1,1 @@
+[Delegation from the University of Freiburg – Germany , Visits AIMS Ghana – AIMS Ghana](https://qi.tc/qi/120610)
