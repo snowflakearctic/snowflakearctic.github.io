@@ -1,0 +1,1 @@
+[Recap : AI For Social Good ; Saiph Savage on Why We Must Power the Invisible Workers - Institute for Experiential AI](https://qi.tc/qi/110619)
