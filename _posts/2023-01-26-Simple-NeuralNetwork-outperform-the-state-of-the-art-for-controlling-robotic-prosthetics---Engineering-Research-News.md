@@ -1,0 +1,1 @@
+[Simple #NeuralNetwork outperform the state-of-the-art for controlling robotic prosthetics - Engineering #Research News](https://qi.tc/qi/110975)
