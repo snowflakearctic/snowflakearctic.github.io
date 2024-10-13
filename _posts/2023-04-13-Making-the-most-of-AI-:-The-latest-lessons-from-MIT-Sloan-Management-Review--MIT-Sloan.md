@@ -1,0 +1,1 @@
+[Making the most of AI : The latest lessons from @MIT Sloan Management Review   @MIT Sloan](https://qi.tc/qi/112683)
