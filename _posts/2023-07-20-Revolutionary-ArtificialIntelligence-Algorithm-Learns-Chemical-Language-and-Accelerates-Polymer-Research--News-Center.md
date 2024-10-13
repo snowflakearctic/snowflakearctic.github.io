@@ -1,0 +1,1 @@
+[Revolutionary #ArtificialIntelligence Algorithm Learns Chemical Language and Accelerates Polymer #Research   News Center](https://qi.tc/qi/115037)
