@@ -1,0 +1,1 @@
+[( PDF) Category-Specificity Can Emerge From Bottom-Up Visual Characteristics : Evidence From a Modular #NeuralNetwork   Keith Laws - Academia .edu](https://qi.tc/qi/120864)
