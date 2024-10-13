@@ -1,0 +1,1 @@
+[JAIST変人ラジオ   JAIST 北陸先端科学技術大学院大学](https://qi.tc/qi/120950)
