@@ -1,0 +1,1 @@
+[Hoffman-Yee #Research Grants   Stanford HAI](https://qi.tc/qi/116239)
