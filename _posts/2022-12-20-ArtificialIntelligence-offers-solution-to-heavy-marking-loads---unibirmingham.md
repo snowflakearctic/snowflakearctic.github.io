@@ -1,0 +1,1 @@
+[#ArtificialIntelligence offers solution to heavy marking loads - @unibirmingham](https://qi.tc/qi/110318)
