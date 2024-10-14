@@ -1,0 +1,1 @@
+[2024 #ArtificialIntelligence faculty experts list - @USC News & Events   University of South Carolina](https://qi.tc/qi/120907)
