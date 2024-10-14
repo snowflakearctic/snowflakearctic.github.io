@@ -1,0 +1,1 @@
+[AI and Education Initiative   Rafik Hariri Institute for Computing and Computational Science & Engineering](https://qi.tc/qi/115729)
