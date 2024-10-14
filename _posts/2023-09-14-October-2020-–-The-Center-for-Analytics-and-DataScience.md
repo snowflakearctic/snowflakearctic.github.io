@@ -1,0 +1,1 @@
+[October 2020 – The Center for Analytics and #DataScience](https://qi.tc/qi/117539)
