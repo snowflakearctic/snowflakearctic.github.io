@@ -1,0 +1,1 @@
+[Jack Powers - Centre for #DataScience](https://qi.tc/qi/118963)
