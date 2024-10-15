@@ -1,0 +1,1 @@
+[The case for AI transparency requirements   Brookings](https://qi.tc/qi/116208)
