@@ -1,0 +1,1 @@
+[( PDF) A self-organizing #NeuralNetwork model of the primary visual cortex   James A. Bednar - Academia .edu](https://qi.tc/qi/120868)
