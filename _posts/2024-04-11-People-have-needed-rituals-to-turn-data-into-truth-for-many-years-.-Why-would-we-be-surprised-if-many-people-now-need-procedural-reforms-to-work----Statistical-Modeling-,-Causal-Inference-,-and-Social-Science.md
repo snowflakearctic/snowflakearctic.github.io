@@ -1,0 +1,1 @@
+[People have needed rituals to turn data into truth for many years . Why would we be surprised if many people now need procedural reforms to work ?   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/119802)
