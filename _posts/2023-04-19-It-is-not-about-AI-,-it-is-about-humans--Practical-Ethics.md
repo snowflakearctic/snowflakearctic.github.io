@@ -1,0 +1,1 @@
+[It is not about AI , it is about humans   Practical Ethics](https://qi.tc/qi/112783)
