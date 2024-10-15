@@ -1,0 +1,1 @@
+[STEM Speaker Series : “ Understanding #QuantumComputing Advantages ” with Dr. Supartha Podder   Stony Brook University Libraries](https://qi.tc/qi/112388)
