@@ -1,0 +1,1 @@
+[Agents of Habit : Refining the Artificial Life Route to #ArtificialIntelligence   Artificial Life Conference Proceedings   @MIT Press](https://qi.tc/qi/114897)
