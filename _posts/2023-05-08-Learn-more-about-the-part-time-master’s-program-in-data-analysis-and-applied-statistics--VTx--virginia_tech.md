@@ -1,0 +1,1 @@
+[Learn more about the part-time master’s program in data analysis and applied statistics   VTx   @virginia_tech](https://qi.tc/qi/113192)
