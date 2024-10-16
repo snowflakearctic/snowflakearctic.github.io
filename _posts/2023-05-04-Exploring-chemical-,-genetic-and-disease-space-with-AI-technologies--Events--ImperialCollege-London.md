@@ -1,0 +1,1 @@
+[Exploring chemical , genetic and disease space with AI technologies   Events   @ImperialCollege London](https://qi.tc/qi/113116)
