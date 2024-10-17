@@ -1,0 +1,1 @@
+[The Price of a Free Salad – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/117809)
