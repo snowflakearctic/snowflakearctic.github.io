@@ -1,0 +1,1 @@
+[More real than reality : using #DeepLearning and generative models to resolve how people make sense of other people’s behaviour – Scottish Graduate School of Social Science](https://qi.tc/qi/112112)
