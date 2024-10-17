@@ -1,0 +1,1 @@
+[A simpler path to better #ComputerVision   @MIT CSAIL](https://qi.tc/qi/110469)
