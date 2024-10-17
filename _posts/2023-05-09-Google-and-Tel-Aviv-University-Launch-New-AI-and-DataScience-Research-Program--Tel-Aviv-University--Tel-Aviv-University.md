@@ -1,0 +1,1 @@
+[Google and Tel Aviv University Launch New AI and #DataScience #Research Program   Tel Aviv University   Tel Aviv University](https://qi.tc/qi/113222)
