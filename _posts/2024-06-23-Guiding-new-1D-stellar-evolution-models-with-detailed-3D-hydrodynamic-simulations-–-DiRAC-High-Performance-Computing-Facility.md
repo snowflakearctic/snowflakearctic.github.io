@@ -1,0 +1,1 @@
+[Guiding new 1D stellar evolution models with detailed 3D hydrodynamic simulations – DiRAC High Performance Computing Facility](https://qi.tc/qi/120428)
