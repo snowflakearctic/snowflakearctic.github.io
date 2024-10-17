@@ -1,0 +1,1 @@
+[Global perspectives on teaching AI ethics - CRASSH](https://qi.tc/qi/111979)
