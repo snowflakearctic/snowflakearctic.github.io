@@ -1,0 +1,1 @@
+[What’s the point of Law Schools ? - BML Munjal University ( BMU)](https://qi.tc/qi/116728)
