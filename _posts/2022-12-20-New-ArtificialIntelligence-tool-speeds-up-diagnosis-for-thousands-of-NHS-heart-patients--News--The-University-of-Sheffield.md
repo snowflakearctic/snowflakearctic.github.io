@@ -1,0 +1,1 @@
+[New #ArtificialIntelligence tool speeds up diagnosis for thousands of NHS heart patients   News   The University of Sheffield](https://qi.tc/qi/110310)
