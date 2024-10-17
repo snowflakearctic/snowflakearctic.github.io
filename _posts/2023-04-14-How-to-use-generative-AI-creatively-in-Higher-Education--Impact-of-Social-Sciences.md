@@ -1,0 +1,1 @@
+[How to use generative AI creatively in Higher Education   Impact of Social Sciences](https://qi.tc/qi/112695)
