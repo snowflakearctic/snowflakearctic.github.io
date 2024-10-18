@@ -1,0 +1,1 @@
+[AI Unlocks New Power for Employees : Are HR Leaders Ready ?](https://qi.tc/qi/120353)
