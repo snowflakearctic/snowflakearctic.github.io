@@ -1,0 +1,1 @@
+[The Impact of #ArtificialIntelligence and ChatGPT on Education - Newsroom   University of St . Thomas](https://qi.tc/qi/112679)
