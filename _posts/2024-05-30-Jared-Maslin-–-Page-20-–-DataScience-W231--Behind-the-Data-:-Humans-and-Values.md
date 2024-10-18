@@ -1,0 +1,1 @@
+[Jared Maslin – Page 20 – #DataScience W231   Behind the Data : Humans and Values](https://qi.tc/qi/120307)
