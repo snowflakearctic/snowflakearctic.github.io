@@ -1,0 +1,1 @@
+[AI in the workplace : First steps for making organisations future-ready   City Perspectives](https://qi.tc/qi/112936)
