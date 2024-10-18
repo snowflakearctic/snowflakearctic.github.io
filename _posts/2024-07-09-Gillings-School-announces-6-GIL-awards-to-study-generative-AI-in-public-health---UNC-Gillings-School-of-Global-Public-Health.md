@@ -1,0 +1,1 @@
+[Gillings School announces 6 GIL awards to study generative AI in public health - UNC Gillings School of Global Public Health](https://qi.tc/qi/120628)
