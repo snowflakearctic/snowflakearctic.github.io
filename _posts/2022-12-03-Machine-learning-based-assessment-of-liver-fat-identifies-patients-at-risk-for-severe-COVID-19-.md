@@ -1,0 +1,1 @@
+[Machine learning-based assessment of liver fat identifies patients at risk for severe COVID-19 ](https://qi.tc/qi/109993)
