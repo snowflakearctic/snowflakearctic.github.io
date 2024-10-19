@@ -1,0 +1,1 @@
+[Andrew Ng   Stanford HAI](https://qi.tc/qi/115245)
