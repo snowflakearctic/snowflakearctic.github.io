@@ -1,0 +1,1 @@
+[humAInism and #ArtificialIntelligence - Diplo Event](https://qi.tc/qi/120152)
