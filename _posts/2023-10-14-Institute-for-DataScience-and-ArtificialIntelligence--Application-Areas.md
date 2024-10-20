@@ -1,0 +1,1 @@
+[Institute for #DataScience and #ArtificialIntelligence   Application Areas](https://qi.tc/qi/118190)
