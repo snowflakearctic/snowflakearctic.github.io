@@ -1,0 +1,1 @@
+[2D artificial neurons mimic complex brain abilities for next-generation AI computing   @uniofoxford](https://qi.tc/qi/113635)
