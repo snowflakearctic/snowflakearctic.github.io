@@ -1,0 +1,1 @@
+[Elon University / Today at Elon / Belk Library , CATL , TLT , Writing Across the University host discussion on ‘The Wave of #ArtificialIntelligence in Higher Ed’](https://qi.tc/qi/111825)
