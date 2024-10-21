@@ -1,0 +1,1 @@
+[Project Maven : #MachineLearning in the Military Target Selection Process - Technology and Operations Management](https://qi.tc/qi/111541)
