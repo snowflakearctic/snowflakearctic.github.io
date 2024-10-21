@@ -1,0 +1,1 @@
+[Against AI Understanding and Sentience : Large Language Models , Meaning , and the Patterns of Human Language Use - PhilSci-Archive](https://qi.tc/qi/113381)
