@@ -1,0 +1,1 @@
+[5 jobs that are being transformed by #ArtificialIntelligence - Mel - Management & eLearning](https://qi.tc/qi/113185)
