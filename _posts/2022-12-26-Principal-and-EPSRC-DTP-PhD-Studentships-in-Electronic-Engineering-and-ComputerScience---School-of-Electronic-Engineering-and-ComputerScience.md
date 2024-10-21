@@ -1,0 +1,1 @@
+[Principal and EPSRC-DTP PhD Studentships in Electronic Engineering and #ComputerScience - School of Electronic Engineering and #ComputerScience](https://qi.tc/qi/110422)
