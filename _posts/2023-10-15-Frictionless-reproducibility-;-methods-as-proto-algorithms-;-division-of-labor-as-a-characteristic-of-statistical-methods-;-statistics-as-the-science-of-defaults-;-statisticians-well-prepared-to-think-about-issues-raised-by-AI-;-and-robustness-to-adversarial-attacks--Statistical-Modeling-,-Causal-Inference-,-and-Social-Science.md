@@ -1,0 +1,1 @@
+[Frictionless reproducibility ; methods as proto-algorithms ; division of labor as a characteristic of statistical methods ; statistics as the science of defaults ; statisticians well prepared to think about issues raised by AI ; and robustness to adversarial attacks   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/118139)
