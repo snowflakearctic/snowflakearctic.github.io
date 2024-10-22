@@ -1,0 +1,1 @@
+[Excavating Awareness and Power : A Decision Tool to Rebuild Trust in #DataScience - @PittTweet](https://qi.tc/qi/110703)
