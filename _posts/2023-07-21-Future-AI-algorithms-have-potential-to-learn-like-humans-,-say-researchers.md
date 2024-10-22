@@ -1,0 +1,1 @@
+[Future AI algorithms have potential to learn like humans , say researchers](https://qi.tc/qi/115197)
