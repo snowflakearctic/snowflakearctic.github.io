@@ -1,0 +1,1 @@
+[FAQ   Master 's in Health Informatics & #DataScience   Georgetown University](https://qi.tc/qi/120878)
