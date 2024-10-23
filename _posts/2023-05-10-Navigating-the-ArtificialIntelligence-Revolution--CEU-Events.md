@@ -1,0 +1,1 @@
+[Navigating the #ArtificialIntelligence Revolution   CEU Events](https://qi.tc/qi/113252)
