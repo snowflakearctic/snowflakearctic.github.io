@@ -1,0 +1,1 @@
+[Certificate in Introduction to #DataScience – COSTAATT](https://qi.tc/qi/120432)
