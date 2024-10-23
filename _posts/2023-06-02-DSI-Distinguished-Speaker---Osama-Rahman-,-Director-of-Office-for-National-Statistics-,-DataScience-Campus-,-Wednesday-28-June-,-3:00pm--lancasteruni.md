@@ -1,0 +1,1 @@
+[DSI Distinguished Speaker - Osama Rahman , Director of Office for National #Statistics , #DataScience Campus , Wednesday 28 June , 3:00pm   @lancasteruni](https://qi.tc/qi/113761)
