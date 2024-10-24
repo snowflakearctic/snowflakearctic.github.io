@@ -1,0 +1,1 @@
+[Adoption History : Adoption #Statistics](https://qi.tc/qi/113550)
