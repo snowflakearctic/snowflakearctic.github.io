@@ -1,0 +1,1 @@
+[Prediction of age of onset of SCA3 and DRPLA by survival analysis using #MachineLearning   #Research Findings   Brain #Research Institute , Niigata University](https://qi.tc/qi/113450)
