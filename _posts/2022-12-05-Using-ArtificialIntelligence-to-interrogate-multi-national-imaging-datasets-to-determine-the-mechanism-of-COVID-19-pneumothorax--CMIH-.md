@@ -1,0 +1,1 @@
+[Using #ArtificialIntelligence to interrogate multi-national imaging datasets to determine the mechanism of COVID-19 pneumothorax   CMIH ](https://qi.tc/qi/110014)
