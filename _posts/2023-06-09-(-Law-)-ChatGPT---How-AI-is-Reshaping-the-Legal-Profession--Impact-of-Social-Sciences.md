@@ -1,0 +1,1 @@
+[( Law ) ChatGPT ? How AI is Reshaping the Legal Profession   Impact of Social Sciences](https://qi.tc/qi/113919)
