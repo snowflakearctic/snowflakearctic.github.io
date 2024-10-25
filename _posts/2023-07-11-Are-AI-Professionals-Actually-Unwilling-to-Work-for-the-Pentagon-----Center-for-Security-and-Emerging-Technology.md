@@ -1,0 +1,1 @@
+[Are AI Professionals Actually Unwilling to Work for the Pentagon ? - Center for Security and Emerging Technology](https://qi.tc/qi/114252)
