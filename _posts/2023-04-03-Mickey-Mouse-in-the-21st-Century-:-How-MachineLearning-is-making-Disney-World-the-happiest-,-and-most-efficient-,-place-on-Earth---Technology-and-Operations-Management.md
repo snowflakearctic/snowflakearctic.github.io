@@ -1,0 +1,1 @@
+[Mickey Mouse in the 21st Century : How #MachineLearning is making Disney World the happiest , and most efficient , place on Earth - Technology and Operations Management](https://qi.tc/qi/112473)
