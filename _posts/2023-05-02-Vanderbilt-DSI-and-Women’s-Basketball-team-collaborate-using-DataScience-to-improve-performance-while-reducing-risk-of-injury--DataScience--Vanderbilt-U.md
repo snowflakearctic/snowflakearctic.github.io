@@ -1,0 +1,1 @@
+[Vanderbilt DSI and Women’s Basketball team collaborate using #DataScience to improve performance while reducing risk of injury   #DataScience   @Vanderbilt U](https://qi.tc/qi/113069)
