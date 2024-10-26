@@ -1,0 +1,1 @@
+[Compliance   GIM AICTE approved Colleges](https://qi.tc/qi/117955)
