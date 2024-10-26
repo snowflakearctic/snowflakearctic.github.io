@@ -1,0 +1,1 @@
+[AIセンター ( A I Center ) ｜会津大学 - University of Aizu](https://qi.tc/qi/120630)
