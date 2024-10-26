@@ -1,0 +1,1 @@
+[In #MachineLearning , synthetic data can offer real performance improvements – @MIT EECS ](https://qi.tc/qi/7681)
