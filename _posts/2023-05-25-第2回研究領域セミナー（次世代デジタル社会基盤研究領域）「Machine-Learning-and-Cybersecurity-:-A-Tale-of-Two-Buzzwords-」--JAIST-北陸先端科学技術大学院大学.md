@@ -1,0 +1,1 @@
+[第2回研究領域セミナー（次世代デジタル社会基盤研究領域）「Machine Learning and #Cybersecurity : A Tale of Two Buzzwords 」   JAIST 北陸先端科学技術大学院大学](https://qi.tc/qi/113597)
