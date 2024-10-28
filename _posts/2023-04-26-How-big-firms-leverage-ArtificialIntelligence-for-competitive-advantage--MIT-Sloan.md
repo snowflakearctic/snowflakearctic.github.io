@@ -1,0 +1,1 @@
+[How big firms leverage #ArtificialIntelligence for competitive advantage   @MIT Sloan](https://qi.tc/qi/112938)
