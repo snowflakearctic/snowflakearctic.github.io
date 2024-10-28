@@ -1,0 +1,1 @@
+[Details - Teaching Series Professor Department of #ComputerScience ( Open Rank )   University of Denver ](https://qi.tc/qi/8193)
