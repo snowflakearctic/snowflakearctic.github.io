@@ -1,0 +1,1 @@
+[Become a DSI Member or Affiliate - The #DataScience Institute at @Columbia](https://qi.tc/qi/114237)
