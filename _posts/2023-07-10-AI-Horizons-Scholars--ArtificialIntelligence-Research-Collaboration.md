@@ -1,0 +1,1 @@
+[AI Horizons Scholars   #ArtificialIntelligence #Research Collaboration](https://qi.tc/qi/114098)
