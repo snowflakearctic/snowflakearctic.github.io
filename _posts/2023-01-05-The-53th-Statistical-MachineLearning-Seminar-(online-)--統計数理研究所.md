@@ -1,0 +1,1 @@
+[The 53th #Statistical #MachineLearning Seminar (online )   統計数理研究所](https://qi.tc/qi/110517)
