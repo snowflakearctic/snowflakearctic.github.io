@@ -1,0 +1,1 @@
+[Data & Analytics Blog   Franklin University](https://qi.tc/qi/120045)
