@@ -1,0 +1,1 @@
+[SCI2186 #MachineLearning for chemistry - Jobs at the University of Nottingham](https://qi.tc/qi/113490)
