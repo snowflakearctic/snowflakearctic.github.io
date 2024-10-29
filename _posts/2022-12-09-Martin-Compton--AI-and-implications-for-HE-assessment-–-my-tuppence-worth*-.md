@@ -1,0 +1,1 @@
+[Martin Compton   AI and implications for HE assessment – my tuppence worth* ](https://qi.tc/qi/110139)
