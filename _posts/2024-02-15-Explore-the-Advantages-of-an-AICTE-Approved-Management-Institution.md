@@ -1,0 +1,1 @@
+[Explore the Advantages of an AICTE-Approved Management Institution](https://qi.tc/qi/119183)
