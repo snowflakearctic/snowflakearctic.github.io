@@ -1,0 +1,1 @@
+[Current trends in AI ( course ) - overview of state-of-art research in AI](https://qi.tc/qi/118641)
