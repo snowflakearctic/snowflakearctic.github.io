@@ -1,0 +1,1 @@
+[Meet the Students – AIMS Ghana](https://qi.tc/qi/115704)
