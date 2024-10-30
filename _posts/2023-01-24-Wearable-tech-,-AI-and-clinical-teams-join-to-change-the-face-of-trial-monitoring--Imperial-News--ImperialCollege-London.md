@@ -1,0 +1,1 @@
+[Wearable tech , AI and clinical teams join to change the face of trial monitoring   Imperial News   @ImperialCollege London](https://qi.tc/qi/110912)
