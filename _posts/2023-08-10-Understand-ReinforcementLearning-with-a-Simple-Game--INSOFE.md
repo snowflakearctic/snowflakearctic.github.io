@@ -1,0 +1,1 @@
+[Understand #ReinforcementLearning with a Simple Game   INSOFE](https://qi.tc/qi/116345)
