@@ -1,0 +1,1 @@
+[The Future of AI and #MachineLearning with the Advent of GPT-4 ](https://qi.tc/qi/43936)
