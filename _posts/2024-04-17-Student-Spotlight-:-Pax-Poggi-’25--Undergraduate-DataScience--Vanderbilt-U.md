@@ -1,0 +1,1 @@
+[Student Spotlight : Pax Poggi ’25   Undergraduate #DataScience   @Vanderbilt U](https://qi.tc/qi/119819)
