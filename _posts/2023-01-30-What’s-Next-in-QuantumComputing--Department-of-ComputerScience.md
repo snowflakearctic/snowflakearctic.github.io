@@ -1,0 +1,1 @@
+[What’s Next in #QuantumComputing   Department of #ComputerScience](https://qi.tc/qi/111044)
