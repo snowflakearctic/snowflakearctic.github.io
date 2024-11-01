@@ -1,0 +1,1 @@
+[Heard on Campus : Combining #MachineLearning and satellite images   @penn_state University](https://qi.tc/qi/111350)
