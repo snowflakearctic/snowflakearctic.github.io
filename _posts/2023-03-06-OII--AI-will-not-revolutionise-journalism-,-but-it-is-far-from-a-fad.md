@@ -1,0 +1,1 @@
+[OII   AI will not revolutionise journalism , but it is far from a fad](https://qi.tc/qi/111846)
