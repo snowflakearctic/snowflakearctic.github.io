@@ -1,0 +1,1 @@
+[[@explainable_AI] for the Sciences : Towards Novel Insights ( Schedule ) - IPAM](https://qi.tc/qi/110709)
