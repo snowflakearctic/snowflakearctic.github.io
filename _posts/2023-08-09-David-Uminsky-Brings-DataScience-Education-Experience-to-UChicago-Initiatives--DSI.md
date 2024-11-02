@@ -1,0 +1,1 @@
+[David Uminsky Brings #DataScience Education Experience to UChicago Initiatives   DSI](https://qi.tc/qi/116285)
