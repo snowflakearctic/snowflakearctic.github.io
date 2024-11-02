@@ -1,0 +1,1 @@
+[IMG_0309-min – AIMS Ghana](https://qi.tc/qi/120927)
