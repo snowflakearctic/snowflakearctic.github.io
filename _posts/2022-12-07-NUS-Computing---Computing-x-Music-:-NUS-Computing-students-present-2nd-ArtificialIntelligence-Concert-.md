@@ -1,0 +1,1 @@
+[NUS Computing - Computing x Music : NUS Computing students present 2nd #ArtificialIntelligence Concert ](https://qi.tc/qi/110059)
