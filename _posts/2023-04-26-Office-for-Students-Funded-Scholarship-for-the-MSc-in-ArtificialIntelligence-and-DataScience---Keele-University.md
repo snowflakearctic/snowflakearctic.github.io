@@ -1,0 +1,1 @@
+[Office for Students Funded Scholarship for the MSc in #ArtificialIntelligence and #DataScience - Keele University](https://qi.tc/qi/112963)
