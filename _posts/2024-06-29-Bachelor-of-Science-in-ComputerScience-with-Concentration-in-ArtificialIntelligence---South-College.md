@@ -1,0 +1,1 @@
+[Bachelor of Science in #ComputerScience with Concentration in #ArtificialIntelligence - South College](https://qi.tc/qi/120453)
