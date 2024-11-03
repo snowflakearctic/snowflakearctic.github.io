@@ -1,0 +1,1 @@
+[AI , medicine and race : Why ending 'structural racism ' in health care now is crucial - Scope](https://qi.tc/qi/118306)
