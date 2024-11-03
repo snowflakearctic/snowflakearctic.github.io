@@ -1,0 +1,1 @@
+[' Gaps between theory and the real world : Safety and the AI clinician' Dr Tom Lawton and Yan Jia   CHIMERA - @UCL – @ucl](https://qi.tc/qi/119281)
