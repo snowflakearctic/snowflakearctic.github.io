@@ -1,0 +1,1 @@
+[#ArtificialIntelligence provides explained predictions to help clinicians tackle antimicrobial resistance - HDR UK](https://qi.tc/qi/110580)
