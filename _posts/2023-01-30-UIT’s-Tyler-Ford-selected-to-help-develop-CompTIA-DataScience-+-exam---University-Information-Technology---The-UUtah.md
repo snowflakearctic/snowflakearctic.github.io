@@ -1,0 +1,1 @@
+[UIT’s Tyler Ford selected to help develop CompTIA #DataScience + exam - University Information Technology - The @UUtah](https://qi.tc/qi/111041)
