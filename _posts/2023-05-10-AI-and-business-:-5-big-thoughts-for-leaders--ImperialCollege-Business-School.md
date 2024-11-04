@@ -1,0 +1,1 @@
+[AI and business : 5 big thoughts for leaders   @ImperialCollege Business School](https://qi.tc/qi/113258)
