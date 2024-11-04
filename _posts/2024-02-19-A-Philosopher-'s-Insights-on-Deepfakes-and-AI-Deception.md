@@ -1,0 +1,1 @@
+[A Philosopher 's Insights on Deepfakes and AI Deception](https://qi.tc/qi/119292)
