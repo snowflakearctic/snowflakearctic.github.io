@@ -1,0 +1,1 @@
+[The 38th Robert S. Mulliken Lecture : Molecular Electronic Structure at the Nexus of Classical and #QuantumComputing   Department of Chemistry](https://qi.tc/qi/113432)
