@@ -1,0 +1,1 @@
+[Early thoughts on regulating generative AI like ChatGPT](https://qi.tc/qi/111579)
