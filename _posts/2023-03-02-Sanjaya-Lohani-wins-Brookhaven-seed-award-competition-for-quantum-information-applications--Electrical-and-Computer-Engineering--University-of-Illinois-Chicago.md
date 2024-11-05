@@ -1,0 +1,1 @@
+[Sanjaya Lohani wins Brookhaven seed award competition for quantum information applications   Electrical and Computer Engineering   University of Illinois Chicago](https://qi.tc/qi/111789)
