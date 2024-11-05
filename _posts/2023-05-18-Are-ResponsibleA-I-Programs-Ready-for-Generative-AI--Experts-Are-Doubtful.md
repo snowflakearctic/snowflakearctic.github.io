@@ -1,0 +1,1 @@
+[Are #ResponsibleA I Programs Ready for Generative AI? Experts Are Doubtful](https://qi.tc/qi/113459)
