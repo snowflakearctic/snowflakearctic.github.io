@@ -1,0 +1,1 @@
+[Bill Basener Featured on CBS19 — School of #DataScience](https://qi.tc/qi/111970)
