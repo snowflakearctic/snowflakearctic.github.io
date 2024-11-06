@@ -1,0 +1,1 @@
+[Generative AI : How to Keep AI Human-Centric & Productive in the ChatGPT Era [VIDEO and SLIDES ] - Institute for Experiential AI](https://qi.tc/qi/115258)
