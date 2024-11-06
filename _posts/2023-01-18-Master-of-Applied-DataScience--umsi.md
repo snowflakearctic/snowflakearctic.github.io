@@ -1,0 +1,1 @@
+[Master of Applied #DataScience   umsi](https://qi.tc/qi/110808)
