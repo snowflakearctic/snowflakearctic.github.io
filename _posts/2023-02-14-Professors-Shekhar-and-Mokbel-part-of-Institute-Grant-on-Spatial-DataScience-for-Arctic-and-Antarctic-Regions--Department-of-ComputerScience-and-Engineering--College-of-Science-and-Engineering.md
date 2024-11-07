@@ -1,0 +1,1 @@
+[Professors Shekhar and Mokbel part of Institute Grant on Spatial #DataScience for Arctic and Antarctic Regions   Department of #ComputerScience and Engineering   College of Science and Engineering](https://qi.tc/qi/111392)
