@@ -1,0 +1,1 @@
+[Professors Quigley and Kitamura to co-chair ACM CHI 2021 in Asia   #ComputerScience Blog](https://qi.tc/qi/120872)
