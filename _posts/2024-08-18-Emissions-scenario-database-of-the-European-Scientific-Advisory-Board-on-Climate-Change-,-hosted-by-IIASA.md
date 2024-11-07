@@ -1,0 +1,1 @@
+[Emissions scenario database of the European Scientific Advisory Board on Climate Change , hosted by IIASA](https://qi.tc/qi/120853)
