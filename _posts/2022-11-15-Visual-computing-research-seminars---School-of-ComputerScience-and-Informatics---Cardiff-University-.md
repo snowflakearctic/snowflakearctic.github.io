@@ -1,0 +1,1 @@
+[Visual computing research seminars - School of #ComputerScience and Informatics - Cardiff University ](https://qi.tc/qi/9012)
