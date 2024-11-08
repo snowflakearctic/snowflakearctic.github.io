@@ -1,0 +1,1 @@
+[Mark Cuban Foundation AI Bootcamp at Carnegie Learning - Readiness Institute at @penn_state](https://qi.tc/qi/116397)
