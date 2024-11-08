@@ -1,0 +1,1 @@
+[AI Adoption - INSIGHTS](https://qi.tc/qi/116353)
