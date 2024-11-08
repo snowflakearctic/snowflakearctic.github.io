@@ -1,0 +1,1 @@
+[Gregory Scholar , #DataScience student studies augmented reality in advertising // Mizzou Engineering](https://qi.tc/qi/113092)
