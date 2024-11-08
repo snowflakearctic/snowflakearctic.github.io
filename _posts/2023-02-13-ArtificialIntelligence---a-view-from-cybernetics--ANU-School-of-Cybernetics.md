@@ -1,0 +1,1 @@
+[#ArtificialIntelligence - a view from cybernetics   ANU School of Cybernetics](https://qi.tc/qi/111338)
