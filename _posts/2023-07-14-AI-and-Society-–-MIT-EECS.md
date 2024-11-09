@@ -1,0 +1,1 @@
+[AI and Society – @MIT EECS](https://qi.tc/qi/114476)
