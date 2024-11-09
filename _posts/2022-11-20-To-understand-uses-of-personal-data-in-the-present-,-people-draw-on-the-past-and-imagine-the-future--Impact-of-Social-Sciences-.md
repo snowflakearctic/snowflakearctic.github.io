@@ -1,0 +1,1 @@
+[To understand uses of personal data in the present , people draw on the past and imagine the future   Impact of Social Sciences ](https://qi.tc/qi/10247)
