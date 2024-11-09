@@ -1,0 +1,1 @@
+[SGC Webinar on 12/21/2022 : Opportunities for Deep Learning-based Detection of Stealth Attacks in Power Systems – Smart Grid Center ](https://qi.tc/qi/110238)
