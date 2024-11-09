@@ -1,0 +1,1 @@
+[動画で見るJAIST   JAIST 北陸先端科学技術大学院大学](https://qi.tc/qi/119897)
