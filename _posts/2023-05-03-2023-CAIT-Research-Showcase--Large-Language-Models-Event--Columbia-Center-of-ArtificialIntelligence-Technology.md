@@ -1,0 +1,1 @@
+[2023 CAIT #Research Showcase & Large Language Models Event   Columbia Center of #ArtificialIntelligence Technology](https://qi.tc/qi/113095)
