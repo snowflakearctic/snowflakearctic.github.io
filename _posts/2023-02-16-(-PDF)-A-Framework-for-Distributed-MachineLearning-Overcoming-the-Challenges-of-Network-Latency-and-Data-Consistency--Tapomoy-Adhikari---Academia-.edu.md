@@ -1,0 +1,1 @@
+[( PDF) A Framework for Distributed #MachineLearning Overcoming the Challenges of Network Latency and Data Consistency   Tapomoy Adhikari - Academia .edu](https://qi.tc/qi/111439)
