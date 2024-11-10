@@ -1,0 +1,1 @@
+[New £5000 bursary to support women onto UCL’s AI for Sustainable Development MSc   @UCL #ComputerScience - @UCL – @ucl](https://qi.tc/qi/112838)
