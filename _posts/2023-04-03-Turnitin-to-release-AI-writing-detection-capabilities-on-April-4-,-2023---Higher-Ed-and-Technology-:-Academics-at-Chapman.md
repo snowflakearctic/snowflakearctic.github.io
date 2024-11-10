@@ -1,0 +1,1 @@
+[Turnitin to release AI writing detection capabilities on April 4 , 2023 - Higher Ed and Technology : Academics at Chapman](https://qi.tc/qi/112452)
