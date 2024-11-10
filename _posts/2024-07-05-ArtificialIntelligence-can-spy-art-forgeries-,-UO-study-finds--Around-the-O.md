@@ -1,0 +1,1 @@
+[#ArtificialIntelligence can spy art forgeries , UO study finds   Around the O](https://qi.tc/qi/120502)
