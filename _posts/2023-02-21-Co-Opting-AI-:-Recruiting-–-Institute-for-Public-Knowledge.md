@@ -1,0 +1,1 @@
+[Co-Opting AI : Recruiting – Institute for Public Knowledge](https://qi.tc/qi/111558)
