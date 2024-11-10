@@ -1,0 +1,1 @@
+[@CarnegieMellon Hosts Generative AI Innovation Challenge - Tepper School of Business - @CarnegieMellon](https://qi.tc/qi/120014)
