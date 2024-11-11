@@ -1,0 +1,1 @@
+[VICOROB   Doctoral Thesis : #DeepLearning methods for extraction of neuroimage markers in the prognosis of brain pathologies - VICOROB](https://qi.tc/qi/111345)
