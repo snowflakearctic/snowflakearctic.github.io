@@ -1,0 +1,1 @@
+[HTI joins #ResponsibleA I Network as knowledge partner   University of Technology Sydney](https://qi.tc/qi/112122)
