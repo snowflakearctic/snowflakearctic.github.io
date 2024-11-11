@@ -1,0 +1,1 @@
+[Center issues seed grant call for ' Big Ideas ' in socially responsible AI   Social Science #Research Institute](https://qi.tc/qi/112095)
