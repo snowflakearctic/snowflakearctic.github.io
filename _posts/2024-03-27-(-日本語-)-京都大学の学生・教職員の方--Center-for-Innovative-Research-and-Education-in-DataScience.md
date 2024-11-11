@@ -1,0 +1,1 @@
+[( 日本語 ) 京都大学の学生・教職員の方   Center for Innovative #Research and Education in #DataScience](https://qi.tc/qi/119661)
