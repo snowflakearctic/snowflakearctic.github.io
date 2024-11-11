@@ -1,0 +1,1 @@
+[Cold Chain Excellence through #DataAnalytics - SIPMM Publications](https://qi.tc/qi/117897)
