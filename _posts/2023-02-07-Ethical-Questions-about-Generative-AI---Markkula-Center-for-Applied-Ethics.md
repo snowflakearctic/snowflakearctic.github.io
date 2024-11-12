@@ -1,0 +1,1 @@
+[Ethical Questions about Generative AI - Markkula Center for Applied Ethics](https://qi.tc/qi/111232)
