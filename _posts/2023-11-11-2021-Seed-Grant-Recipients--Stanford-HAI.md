@@ -1,0 +1,1 @@
+[2021 Seed Grant Recipients   Stanford HAI](https://qi.tc/qi/118457)
