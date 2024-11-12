@@ -1,0 +1,1 @@
+[Generative AI - Center for Intelligent Business - Tepper School of Business - @CarnegieMellon](https://qi.tc/qi/120015)
