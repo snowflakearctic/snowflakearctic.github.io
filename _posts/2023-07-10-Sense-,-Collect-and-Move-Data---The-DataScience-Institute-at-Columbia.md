@@ -1,0 +1,1 @@
+[Sense , Collect and Move Data - The #DataScience Institute at @Columbia](https://qi.tc/qi/114265)
