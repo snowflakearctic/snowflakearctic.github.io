@@ -1,0 +1,1 @@
+[#QuantumComputing \\ The Nanoelectronic Modeling Group \\ @LifeAtPurdue](https://qi.tc/qi/120057)
