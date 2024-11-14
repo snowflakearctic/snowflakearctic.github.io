@@ -1,0 +1,1 @@
+[Diversity , Equity , and Inclusion at the #SoftwareEngineering Institute](https://qi.tc/qi/115764)
