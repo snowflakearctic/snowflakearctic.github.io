@@ -1,0 +1,1 @@
+[Vietnam Spring School   A rough path between mathematics and #DataScience](https://qi.tc/qi/111244)
