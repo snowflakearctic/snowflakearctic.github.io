@@ -1,0 +1,1 @@
+[Alexander Pretschner : “Software Can Do Wrong : On Ethics in Agile #SoftwareEngineering ” — DIGHUM](https://qi.tc/qi/116741)
