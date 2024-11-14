@@ -1,0 +1,1 @@
+[SCI2191 PhD Studentship : #MachineLearning for predicting yeast phenotype from genotype for biotech applications - Jobs at the University of Nottingham](https://qi.tc/qi/113786)
