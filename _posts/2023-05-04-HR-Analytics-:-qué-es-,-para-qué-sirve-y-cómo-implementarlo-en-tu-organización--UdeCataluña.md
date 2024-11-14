@@ -1,0 +1,1 @@
+[HR Analytics : qué es , para qué sirve y cómo implementarlo en tu organización   UdeCataluña](https://qi.tc/qi/113142)
