@@ -1,0 +1,1 @@
+[Popular Practicum AI Series Now Available to Everyone – @UF Information Technology News](https://qi.tc/qi/120401)
