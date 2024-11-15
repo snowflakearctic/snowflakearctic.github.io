@@ -1,0 +1,1 @@
+[Five Human Skills that AI Can’t Replace ( Yet )](https://qi.tc/qi/113790)
