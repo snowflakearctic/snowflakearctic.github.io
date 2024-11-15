@@ -1,0 +1,1 @@
+[" SDNET2018 : A concrete crack image dataset for #MachineLearning applica " by Marc Maguire , Sattar Dorafshan et al .](https://qi.tc/qi/111972)
