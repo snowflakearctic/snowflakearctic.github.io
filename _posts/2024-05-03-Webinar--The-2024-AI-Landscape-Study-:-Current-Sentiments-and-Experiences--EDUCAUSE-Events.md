@@ -1,0 +1,1 @@
+[Webinar   The 2024 AI Landscape Study : Current Sentiments and Experiences   EDUCAUSE Events](https://qi.tc/qi/120033)
