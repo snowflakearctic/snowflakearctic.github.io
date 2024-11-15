@@ -1,0 +1,1 @@
+[May 19 , 2023   @UCLA team uses #ArtificialIntelligence to predict landslides   California NanoSystems Institute](https://qi.tc/qi/113625)
