@@ -1,0 +1,1 @@
+[Does AI Help Reduce Wasteful Holiday Gifting ?](https://qi.tc/qi/110410)
