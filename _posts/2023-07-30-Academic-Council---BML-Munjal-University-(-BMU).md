@@ -1,0 +1,1 @@
+[Academic Council - BML Munjal University ( BMU)](https://qi.tc/qi/116159)
