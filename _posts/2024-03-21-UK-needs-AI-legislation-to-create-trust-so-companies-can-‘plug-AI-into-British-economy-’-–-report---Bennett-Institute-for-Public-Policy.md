@@ -1,0 +1,1 @@
+[UK needs AI legislation to create trust so companies can ‘plug AI into British economy ’ – report - Bennett Institute for Public Policy](https://qi.tc/qi/119606)
