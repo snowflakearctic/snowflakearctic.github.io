@@ -1,0 +1,1 @@
+[The politics of AI : ChatGPT and political bias](https://qi.tc/qi/113217)
