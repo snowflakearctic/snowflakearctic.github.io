@@ -1,0 +1,1 @@
+[NIRSpec Bright Object #TimeSeries Spectroscopy - JWST User Documentation ](https://qi.tc/qi/6833)
