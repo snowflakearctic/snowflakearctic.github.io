@@ -1,0 +1,1 @@
+[Automated AI Coronary Artery Calcium Scoring is Live on all @UCSF Non-Contrast Chest CTs   @UCSF Radiology](https://qi.tc/qi/112578)
