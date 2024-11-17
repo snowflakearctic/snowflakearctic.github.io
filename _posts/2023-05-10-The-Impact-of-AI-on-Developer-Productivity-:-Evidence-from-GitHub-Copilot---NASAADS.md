@@ -1,0 +1,1 @@
+[The Impact of AI on Developer Productivity : Evidence from GitHub Copilot - NASA/ADS](https://qi.tc/qi/113251)
